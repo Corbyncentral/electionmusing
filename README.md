@@ -12,6 +12,7 @@ NEGATIVE TACTICS
 <br>
 <a href="https://www.theguardian.com/politics/2017/may/27/conservatives-facebook-dark-ads-data-protection-election">Revealed: Tory ‘dark’ ads targeted voters’ Facebook feeds in Welsh marginal seat</a>
 <br>
+<a href="http://hopenothate.org.uk/2017/05/16/national-front-ukip-now-tories/">FROM THE NATIONAL FRONT, TO UKIP… AND NOW THE TORIES</a>
 <br>
 
 <br>
