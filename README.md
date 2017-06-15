@@ -191,6 +191,8 @@ MICHAEL FALLON
 <br>
 <a href="https://labourfriendsoftheforces.org.uk/2017/05/22/michael-fallon-skips-defence-debate-to-campaign-in-ilford/">Michael Fallon skips defence debate to campaign in Ilford</a>
 <br>
+<a href="http://www.dailyrecord.co.uk/news/uk-world-news/watch-key-tory-michael-fallon-10519221">Tory Michael Fallon is caught twisting Jeremy Corbyn's words about terrorism on live TV</a>
+<br>
 
 
 <br>
