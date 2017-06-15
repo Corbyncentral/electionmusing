@@ -94,6 +94,8 @@ NASTY PARTY
 <br>
 <a href="http://archive.is/ZGHEA">Fury after Tory councillor posts offensive tweets of colonial-era Africa with joking references to spears and loin cloths</a>
 <br>
+<a href="http://www.mirror.co.uk/news/politics/why-not-vote-conservatives-election-10303180">Why should I not vote Conservative? 29 nasty policies you shouldn't forget in the 2017 general election</a>
+<br>
 
 <br>
 CORRUPTION
