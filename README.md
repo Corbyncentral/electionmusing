@@ -48,6 +48,8 @@ JEREMY CORBYN
 <br>
 <a href="http://www.huffingtonpost.co.uk/entry/right-wing-press-smear-jeremy-corbyn-general-election_uk_5937b82ce4b0aba888b9eb3d">Jeremy Corbyn ‘Smears’ Trending As Right-Wing Press Declare Hands On Eve Of General Election</a>
 <br>
+<a href="https://jacobinmag.com/2017/06/jeremy-corbyn-attacks-media-labour-election-prime-minister">A History of Sabotaging Jeremy Corbyn</a>
+<br>
 
 <br>
 TERROR
