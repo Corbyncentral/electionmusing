@@ -26,6 +26,8 @@ BBC
 <br>
 <a href="http://evolvepolitics.com/bbc-licence-fee-now-simply-charge-spoon-fed-right-wing-propaganda/">The BBC licence fee is now simply a charge to be spoon-fed right-wing propaganda</a>
 <br>
+<a href="http://voxpoliticalonline.com/2016/08/10/bbc-impartiality-in-tatters-as-report-reveals-corporation-relies-on-tories-for-statistics/">BBC impartiality in tatters as report reveals corporation relies on Tories for statistics</a>
+<br>
 
 
 <br>
