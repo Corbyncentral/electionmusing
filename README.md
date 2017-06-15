@@ -137,6 +137,12 @@ FIRE
 <br>
 
 <br>
+HOUSING
+<br>
+<a href="http://www.independent.co.uk/news/uk/politics/landlord-tory-mp-philip-davies-law-requiring-homes-be-fit-for-human-habitation-unnecessary-a6696931.html">Landlord Tory MP Philip Davies says law requiring homes be fit for human habitation is an unnecessary burden</a>
+<br>
+
+<br>
 IMMIGRATION
 <br>
 <a href="http://evolvepolitics.com/michael-rosen-absolutely-nails-britains-obsession-immigration-complete-utter-nonsense/">Michael Rosen absolutely nails why Britain’s obsession with immigration is complete and utter nonsense</a>
