@@ -66,6 +66,8 @@ THERESA MAY
 <br>
 <a href="http://anotherangryvoice.blogspot.co.uk/2017/05/theresa-mays-extraordinary-facebook.html?m=1">Theresa May's extraordinary Facebook meltdown</a>
 <br>
+<a href="https://www.thecanary.co/2017/05/11/we-took-a-look-at-theresa-mays-proud-record-in-government-its-shameful-video/">We took a look at Theresa May’s ‘proud record’ in government.It's shameful.</a>
+<br>
 
 <br>
 IMMIGRATION
