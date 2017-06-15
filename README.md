@@ -1,8 +1,9 @@
 # electionmusing
 <br>
-Some links to help you
+Some links to share
 <br>
-
+Regular updates, be sure to bookmark and return!
+<br>
 
 
 <br>
