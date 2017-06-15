@@ -202,7 +202,8 @@ PANAMA PAPERS
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/leaked-papers-link-home-secretary-amber-rudd-to-bahamas-offshore-tax-haven-a7321676.html">Leaked papers 'link Home Secretary Amber Rudd to Bahamas offshore tax haven'</a>
 <br>
-
+<a href="http://www.telegraph.co.uk/news/2016/05/09/panama-papers-full-database-revealed/">Panama Papers database dump reveals 200,000 secret offshore account details</a>
+<br>
 
 <br>
 MICHAEL FALLON
