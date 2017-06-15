@@ -95,6 +95,8 @@ CORRUPTION
 <br>
 <a href="https://www.thecanary.co/2017/05/03/breaking-whistleblowers-come-forward-new-election-fraud-evidence-every-voter-needs-see/">Whistleblowers have come forward with new election fraud evidence that every UK voter needs to read</a>
 <br>
+<a href="http://theleveller.org/2016/02/hsbc/">The Bank You Can’t Afford To Offend</a>
+<br>
 
 <br>
 NHS
