@@ -126,6 +126,9 @@ BREXIT
 <br>
 <a href="http://www.independent.co.uk/news/uk/home-news/sunday-times-rich-list-billionaires-wealthiest-worth-658-billion-a7722166.html">Brexit helps make UK's 1,000 richest people even richer</a>
 <br>
+<a href="http://www.thelondoneconomic.com/news/leaked-document-shows-secret-government-studies-impact-hard-brexit/07/04/">Leaked document shows ‘secret’ government studies into impact of ‘hard’ Brexit</a>
+<br>
+
 
 <br>
 SUPPORTING LABOUR
