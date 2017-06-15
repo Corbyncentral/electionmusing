@@ -14,6 +14,8 @@ NEGATIVE TACTICS
 <br>
 <a href="http://hopenothate.org.uk/2017/05/16/national-front-ukip-now-tories/">FROM THE NATIONAL FRONT, TO UKIP… AND NOW THE TORIES</a>
 <br>
+<a href="https://politicalscrapbook.net/2017/06/bitter-tory-councillor-wants-to-ban-students-from-voting-in-university-seats/">BITTER TORY COUNCILLOR WANTS TO BAN STUDENTS FROM VOTING IN UNIVERSITY SEATS</a>
+<br>
 
 <br>
 BBC
