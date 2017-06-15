@@ -104,6 +104,12 @@ NHS
 <br>
 
 <br>
+BREXIT
+<br>
+<a href="http://www.independent.co.uk/news/uk/home-news/sunday-times-rich-list-billionaires-wealthiest-worth-658-billion-a7722166.html">Brexit helps make UK's 1,000 richest people even richer</a>
+<br>
+
+<br>
 SUPPORTING LABOUR
 <br>
 <a href="http://skwawkbox.org.linkis.com/l5v64">“IN 2015 I WAS JUBILANT THE TORIES WON. NOW I’M VOTING LABOUR” #GE17</a>
