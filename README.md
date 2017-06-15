@@ -73,7 +73,8 @@ CONSERVATIVES AND THE IRA
 <br>
 <a href="http://evolvepolitics.com/realise-current-conservative-politician-literally-member-ira-right/">You do realise that a current SERVING Conservative politician was literally a MEMBER of the IRA, right?</a>
 <br>
-
+<a href="http://anotherangryvoice.blogspot.co.uk/2017/04/the-absurd-ira-hypocrisyof-right-wing.html">The searing hypocrisy of the right-wing "Corbyn talked to the IRA" brigade</a>
+<br>
 
 <br>
 THERESA MAY
