@@ -129,6 +129,13 @@ BREXIT
 <a href="http://www.thelondoneconomic.com/news/leaked-document-shows-secret-government-studies-impact-hard-brexit/07/04/">Leaked document shows ‘secret’ government studies into impact of ‘hard’ Brexit</a>
 <br>
 
+<br>
+PANAMA PAPERS
+<br>
+<a href="http://www.independent.co.uk/news/uk/politics/leaked-papers-link-home-secretary-amber-rudd-to-bahamas-offshore-tax-haven-a7321676.html">Leaked papers 'link Home Secretary Amber Rudd to Bahamas offshore tax haven'</a>
+<br>
+
+
 
 <br>
 SUPPORTING LABOUR
