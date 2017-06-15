@@ -98,6 +98,10 @@ CORRUPTION
 <br>
 <a href="http://nicholaswilson.com/the-corporate-panopticon-britain-today/">The Corporate Panopticon – how HSBC controls society</a>
 <br>
+<a href="https://www.theguardian.com/business/2016/jul/11/hsbc-us-money-laundering-george-osborne-report">HSBC escaped US money-laundering charges after Osborne's intervention</a>
+<br>
+
+
 
 <br>
 NHS
