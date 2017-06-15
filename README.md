@@ -105,7 +105,8 @@ FIRE
 <br>
 <a href="http://www.independent.co.uk/voices/election-tories-labour-corbyn-fire-service-dangerous-cuts-a7773826.html">As a firefighter, I know that fire service cuts brought in by the Tories are just as dangerous as those to the police</a>
 <br>
-
+<a href="http://www.mirror.co.uk/news/uk-news/firefighters-cut-6700-under-tories-7085563">Firefighters cut by 6,700 under Tories as union warns of ''disastrous'' impact on safety</a>
+<br>
 
 <br>
 IMMIGRATION
