@@ -60,3 +60,7 @@ THERESA MAY
 <br>
 <a href="http://anotherangryvoice.blogspot.co.uk/2017/05/theresa-mays-extraordinary-facebook.html?m=1">Theresa May's extraordinary Facebook meltdown</a>
 <br>
+
+<br>
+<a href="http://evolvepolitics.com/michael-rosen-absolutely-nails-britains-obsession-immigration-complete-utter-nonsense/">Michael Rosen absolutely nails why Britain’s obsession with immigration is complete and utter nonsense</a>
+<br>
