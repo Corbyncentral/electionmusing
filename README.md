@@ -81,6 +81,13 @@ CONSERVATIVES AND THE IRA
 <br>
 
 <br>
+CONSERVATIVES AND THE DUP
+<br>
+<a href="http://metro.co.uk/2017/06/09/tories-to-form-coalition-government-with-anti-gay-marriage-dup-6697769/">Tories to form government with DUP – which has links to terrorism</a>
+<br>
+
+
+<br>
 THERESA MAY
 <br>
 <a href="http://anotherangryvoice.blogspot.co.uk/2017/05/theresa-mays-extraordinary-facebook.html?m=1">Theresa May's extraordinary Facebook meltdown</a>
