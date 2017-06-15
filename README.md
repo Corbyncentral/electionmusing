@@ -219,6 +219,9 @@ BREXIT
 <br>
 <a href="http://www.independent.co.uk/voices/global-laundromat-money-laundering-panama-papers-more-scandals-a7644481.html">Brexit will only mean more money laundering scandals like ‘Global Laundromat’</a>
 <br>
+<a href="https://www.theguardian.com/commentisfree/2017/apr/04/brutal-regimes-tory-brexit-eu-theresa-may-saudi-arabia-terror">This is what Brexit looks like: cosying up to brutal regimes</a>
+<br>
+
 
 <br>
 PANAMA PAPERS
