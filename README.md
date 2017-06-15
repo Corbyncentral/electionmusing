@@ -106,6 +106,13 @@ IMMIGRATION
 <a href="http://evolvepolitics.com/michael-rosen-absolutely-nails-britains-obsession-immigration-complete-utter-nonsense/">Michael Rosen absolutely nails why Britain’s obsession with immigration is complete and utter nonsense</a>
 <br>
 
+
+<br>
+EMPLOYMENT
+<br>
+<a href="http://www.independent.co.uk/voices/tories-employment-statistics-unemployment-general-election-jobs-reality-different-a7726666.html">The Tories will tell you they're the party that gives the nation proper employment – but even their advisers don't agree</a>
+<br>
+
 <br>
 NASTY PARTY
 <br>
