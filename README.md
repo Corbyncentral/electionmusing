@@ -76,6 +76,8 @@ THERESA MAY
 <br>
 <a href="http://www.express.co.uk/news/uk/714124/David-Cameron-Theresa-May-Prime-minister-Brexit-campaign-Submarine-May-Sir-Craig-Oliver">REVEALED: 'Submarine May' Cameron's name for PM as he begged her to 'come off the fence.'</a>
 <br>
+<a href="https://www.thepileus.com/uk/theresa-may-and-the-missing-child-sex-abuse-files/">Theresa May and the ‘missing’ child sex abuse files</a>
+<br>
 
 <br>
 IMMIGRATION
