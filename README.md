@@ -126,6 +126,12 @@ EMPLOYMENT
 <br>
 
 <br>
+SCHOOLS
+<br>
+<a href="http://www.mirror.co.uk/news/politics/how-tory-school-funding-cuts-10047684">How will Tory school funding cuts hit my area? Search by postcode to see shocking figures</a>
+<br>
+
+<br>
 NASTY PARTY
 <br>
 <a href="http://archive.is/ZGHEA">Fury after Tory councillor posts offensive tweets of colonial-era Africa with joking references to spears and loin cloths</a>
