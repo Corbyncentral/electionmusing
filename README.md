@@ -129,6 +129,8 @@ BREXIT
 <br>
 <a href="http://www.thelondoneconomic.com/news/leaked-document-shows-secret-government-studies-impact-hard-brexit/07/04/">Leaked document shows ‘secret’ government studies into impact of ‘hard’ Brexit</a>
 <br>
+<a href="http://www.independent.co.uk/voices/global-laundromat-money-laundering-panama-papers-more-scandals-a7644481.html">Brexit will only mean more money laundering scandals like ‘Global Laundromat’</a>
+<br>
 
 <br>
 PANAMA PAPERS
