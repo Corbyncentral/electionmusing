@@ -10,6 +10,8 @@ NEGATIVE TACTICS
 <br>
 <a href="https://insidecroydon.com/2017/06/07/barwells-bogus-dear-neighbour-letters-use-an-old-cons-trick/">barwells bogus dear neighbour letters use an old cons trick</a>
 <br>
+<a href="https://www.theguardian.com/politics/2017/may/27/conservatives-facebook-dark-ads-data-protection-election">Revealed: Tory ‘dark’ ads targeted voters’ Facebook feeds in Welsh marginal seat</a>
+<br>
 
 <br>
 BBC
@@ -26,9 +28,11 @@ JEREMY CORBYN
 <br>
 <a href="http://www.thelondoneconomic.com/news/politics/facebook-comment-jeremy-corbyn-going-viral/31/05/">facebook comment about Jeremy Corbyn going viral</a>
 <br>
+<a href="https://skwawkbox.org/2017/05/25/world-exclusive-corbyn-mowlams-envoy-to-ira-and-loyalists/">WORLD EXCLUSIVE: #CORBYN – MOWLAM’S ENVOY, MET IRA AND LOYALISTS</a>
+<br>
 
 <br>
-Terror
+TERROR
 <br>
 <a href="https://www.theguardian.com/uk-news/2017/may/31/sensitive-uk-terror-funding-inquiry-findings-may-never-be-published-saudi-arabia">'Sensitive' UK terror funding inquiry may never be published</a>
 <br>
