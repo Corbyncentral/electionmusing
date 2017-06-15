@@ -93,7 +93,8 @@ CORRUPTION
 <br>
 <a href="https://thesecretbarrister.com/2017/05/10/myth-busting-the-tory-election-fraud-a-10-point-guide/">Myth-busting the “Tory election fraud” – A 10-point guide</a>
 <br>
-
+<a href="https://www.thecanary.co/2017/05/03/breaking-whistleblowers-come-forward-new-election-fraud-evidence-every-voter-needs-see/">Whistleblowers have come forward with new election fraud evidence that every UK voter needs to read</a>
+<br>
 
 <br>
 NHS
