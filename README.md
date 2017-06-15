@@ -12,7 +12,20 @@ NEGATIVE TACTICS
 <br>
 
 <br>
-BBC SECTION
+BBC
 <br>
 <a href="http://dissidentvoice.org/2017/06/the-bbc-has-betrayed-its-own-rules-of-impartiality-yemen-saudi-arabia-and-the-general-election/">The BBC Has Betrayed Its Own Rules of Impartiality: Yemen, Saudi Arabia and the General Election</a>
+<br>
+
+<br>
+JEREMY CORBYN
+<br>
+<a href="http://www.thelondoneconomic.com/tle-pick/think-jeremy-corbyn-is-a-loser-oh-dear-youve-been-brainwashed/18/08/">Think Jeremy Corbyn is a loser, oh dear, you've been brainwashed</a>
+<br>
+
+
+<br>
+Terror
+<br>
+<a href="https://www.theguardian.com/uk-news/2017/may/31/sensitive-uk-terror-funding-inquiry-findings-may-never-be-published-saudi-arabia">'Sensitive' UK terror funding inquiry may never be published</a>
 <br>
