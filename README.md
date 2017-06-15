@@ -129,6 +129,8 @@ NHS
 <br>
 <a href="https://skwawkbox.org/2017/04/23/nhs-staff-do-publicduty-to-expose-tory-damage-pls-help-raise-awareness-ge17/">NHS STAFF DO #PUBLICDUTY TO EXPOSE TORY DAMAGE – PLS HELP RAISE AWARENESS. #GE17</a>
 <br>
+<a href="https://inews.co.uk/opinion/comment/jeremy-hunt-health-secretary-blood-on-his-hands-raymond-tallis-essay-nhs/">Jeremy Hunt has blood on his hands’ – Raymond Tallis’s expert assault on the Health</a>
+<br>
 
 <br>
 UN
