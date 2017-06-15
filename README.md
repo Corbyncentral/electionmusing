@@ -32,3 +32,10 @@ Terror
 <br>
 <a href="https://www.theguardian.com/uk-news/2017/may/31/sensitive-uk-terror-funding-inquiry-findings-may-never-be-published-saudi-arabia">'Sensitive' UK terror funding inquiry may never be published</a>
 <br>
+
+
+<br>
+CONSERVATIVES AND THE IRA
+<br>
+<a href="http://www.belfasttelegraph.co.uk/sunday-life/conservative-club-honours-ira-bomber-gerry-mcgivern-by-lowering-union-flag-to-half-mast-34357680.html">Conservative Club honours IRA bomber Gerry McGivern by lowering Union flag to half mast</a>
+<br>
