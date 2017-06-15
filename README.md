@@ -110,7 +110,8 @@ CONSERVATIVES AND AUSTERITY
 <br>
 <a href="http://www.independent.co.uk/voices/talk-of-diversity-is-hypocritical-when-tory-policies-have-made-life-worse-for-ethnic-minorities-a6846501.html">Talk of diversity is hypocritical when Tory policies have made life worse for ethnic minorities</a>
 <br>
-
+<a href="http://www.mirror.co.uk/news/politics/austerity-not-over-after-theresa-10613800">Austerity is NOT over after Theresa May's election disaster, says Michael Gove</a>
+<br>
 
 
 <br>
