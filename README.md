@@ -12,7 +12,6 @@ NEGATIVE TACTICS
 <br>
 <a href="https://www.theguardian.com/politics/2017/may/27/conservatives-facebook-dark-ads-data-protection-election">Revealed: Tory ‘dark’ ads targeted voters’ Facebook feeds in Welsh marginal seat</a>
 <br>
-<a href="http://www.heraldscotland.com/news/15298376.Video__New_concerns_over_top_Tories__links_to_election_count_firm_as_warning_over_leaks_emerge/?ref=twtrec">New concerns over top Tories' links to election count firm as warning over leaks emerge</a>
 <br>
 
 <br>
@@ -74,3 +73,6 @@ CORRUPTION
 <br>
 <a href="https://www.opendemocracy.net/uk/joel-benjamin/why-hsbc-s-indirect-donations-to-conservatives-and-buzzfeed-s-dismissal-as-conspira">Why HSBC’s indirect donations to the Conservatives (and Buzzfeed’s dismissal as a 'conspiracy') matters to our democracy</a>
 <br>
+<a href="http://www.heraldscotland.com/news/15298376.Video__New_concerns_over_top_Tories__links_to_election_count_firm_as_warning_over_leaks_emerge/?ref=twtrec">New concerns over top Tories' links to election count firm as warning over leaks emerge</a>
+<br>
+
