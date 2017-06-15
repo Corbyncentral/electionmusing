@@ -153,6 +153,8 @@ NHS
 <br>
 <a href="https://inews.co.uk/opinion/comment/jeremy-hunt-health-secretary-blood-on-his-hands-raymond-tallis-essay-nhs/">'Jeremy Hunt has blood on his hands’ – Raymond Tallis’s expert assault on the Health</a>
 <br>
+<a href="http://www.independent.co.uk/news/uk/home-news/nhs-british-red-cross-hospitals-volunteers-land-rover-winter-pressure-emergency-a7514526.html">Red Cross steps in to help alleviate 'humanitarian crisis' at UK hospitals</a>
+<br>
 
 <br>
 UN
