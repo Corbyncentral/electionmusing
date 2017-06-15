@@ -16,13 +16,16 @@ BBC
 <br>
 <a href="http://dissidentvoice.org/2017/06/the-bbc-has-betrayed-its-own-rules-of-impartiality-yemen-saudi-arabia-and-the-general-election/">The BBC Has Betrayed Its Own Rules of Impartiality: Yemen, Saudi Arabia and the General Election</a>
 <br>
+<a href="https://www.opendemocracy.net/ourbeeb/tim-holmes/is-question-time-s-audience-producer-really-fascist">Is BBC Question Time’s audience producer really a fascist?</a>
+<br>
 
 <br>
 JEREMY CORBYN
 <br>
 <a href="http://www.thelondoneconomic.com/tle-pick/think-jeremy-corbyn-is-a-loser-oh-dear-youve-been-brainwashed/18/08/">Think Jeremy Corbyn is a loser, oh dear, you've been brainwashed</a>
 <br>
-
+<a href="http://www.thelondoneconomic.com/news/politics/facebook-comment-jeremy-corbyn-going-viral/31/05/">facebook comment about Jeremy Corbyn going viral</a>
+<br>
 
 <br>
 Terror
