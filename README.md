@@ -1,5 +1,5 @@
 # electionmusing
-Centralised accumulated links to hopefully guide you
+Centralised accumulated links to hopefully prove useful
 
 
 
@@ -24,6 +24,9 @@ BBC
 <br>
 <a href="http://www.irishnews.com/magazine/2017/01/18/news/bbc-breached-accuracy-with-jeremy-corbyn-shoot-to-kill-comment-891728/">BBC breached accuracy with Jeremy Corbyn shoot-to-kill comment</a>
 <br>
+<a href="http://evolvepolitics.com/bbc-licence-fee-now-simply-charge-spoon-fed-right-wing-propaganda/">The BBC licence fee is now simply a charge to be spoon-fed right-wing propaganda</a>
+<br>
+
 
 <br>
 JEREMY CORBYN
