@@ -53,3 +53,10 @@ CONSERVATIVES AND THE IRA
 <br>
 <a href="http://evolvepolitics.com/realise-current-conservative-politician-literally-member-ira-right/">You do realise that a current SERVING Conservative politician was literally a MEMBER of the IRA, right?</a>
 <br>
+
+
+<br>
+THERESA MAY
+<br>
+<a href="http://anotherangryvoice.blogspot.co.uk/2017/05/theresa-mays-extraordinary-facebook.html?m=1">Theresa May's extraordinary Facebook meltdown</a>
+<br>
