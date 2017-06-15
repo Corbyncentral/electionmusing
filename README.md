@@ -100,7 +100,8 @@ NHS
 <br>
 <a href="http://nyebevannews.co.uk/health-foundation-half-the-money-tories-promised-in-2015-left-the-nhs-for-private-companies/">Health foundation:Half the money promised in 2015 left the NHS for private companies</a>
 <br>
-
+<a href="https://tompride.wordpress.com/2017/05/08/nhs-tories-silent-on-introduction-of-145-charges-for-40-minute-gp-consultations/">NHS: Tories SILENT on introduction of £145 charges for 40-minute GP consultations</a>
+<br>
 
 <br>
 SUPPORTING LABOUR
