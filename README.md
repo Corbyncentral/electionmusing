@@ -159,7 +159,8 @@ UN
 <br>
 <a href="https://www.thecanary.co/2017/05/05/media-kept-quiet-massive-blow-tories-election-campaign-reporting/">The mainstream media have kept quiet about a major blow to the Tories’ election campaign. So we’re reporting it.</a>
 <br>
-
+<a href="https://www.theguardian.com/business/2016/nov/07/uk-austerity-policies-amount-to-violations-of-disabled-peoples-rights">UK austerity policies 'amount to violations of disabled people's rights'</a>
+<br>
 
 <br>
 BREXIT
