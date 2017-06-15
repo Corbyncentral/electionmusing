@@ -142,9 +142,10 @@ NASTY PARTY
 <br>
 <a href="http://www.mirror.co.uk/news/politics/why-not-vote-conservatives-election-10303180">Why should I not vote Conservative? 29 nasty policies you shouldn't forget in the 2017 general election</a>
 <br>
-<a href=http://metro.co.uk/2017/06/11/tory-mp-calls-member-of-public-a-dck-for-mistakenly-calling-dup-deal-a-coalition-6701979/">Tory MP calls member of public a ‘d*ck’ for mistakenly calling DUP deal a coalition</a>
+<a href="http://metro.co.uk/2017/06/11/tory-mp-calls-member-of-public-a-dck-for-mistakenly-calling-dup-deal-a-coalition-6701979/">Tory MP calls member of public a ‘d*ck’ for mistakenly calling DUP deal a coalition</a>
 <br>
-
+<a href="http://www.independent.co.uk/news/uk/politics/tory-mp-defends-faking-death-threat-over-syria-air-strikes-vote-a6764766.html">Tory MP admits adding 'death threat' to Facebook post over Syria air strikes vote</a>
+<br>
 
 <br>
 CORRUPTION
