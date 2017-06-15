@@ -1,5 +1,7 @@
 # electionmusing
-Centralised accumulated links to hopefully prove useful
+<br>
+Some links to help you
+<br>
 
 
 
@@ -181,6 +183,8 @@ NHS
 <a href="https://inews.co.uk/opinion/comment/jeremy-hunt-health-secretary-blood-on-his-hands-raymond-tallis-essay-nhs/">'Jeremy Hunt has blood on his hands’ – Raymond Tallis’s expert assault on the Health</a>
 <br>
 <a href="http://www.independent.co.uk/news/uk/home-news/nhs-british-red-cross-hospitals-volunteers-land-rover-winter-pressure-emergency-a7514526.html">Red Cross steps in to help alleviate 'humanitarian crisis' at UK hospitals</a>
+<br>
+<a href="http://www.mirror.co.uk/news/politics/what-naylor-report-everything-explained-10543351">What is the Naylor Report? A summary of the plans behind Theresa May's big NHS property sell-off</a>
 <br>
 
 <br>
