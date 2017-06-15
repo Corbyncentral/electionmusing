@@ -84,6 +84,8 @@ CORRUPTION
 <br>
 <a href="http://www.heraldscotland.com/news/15298376.Video__New_concerns_over_top_Tories__links_to_election_count_firm_as_warning_over_leaks_emerge/?ref=twtrec">New concerns over top Tories' links to election count firm as warning over leaks emerge</a>
 <br>
+<a href="https://thesecretbarrister.com/2017/05/10/myth-busting-the-tory-election-fraud-a-10-point-guide/">Myth-busting the “Tory election fraud” – A 10-point guide</a>
+<br>
 
 
 <br>
