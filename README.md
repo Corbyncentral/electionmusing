@@ -105,6 +105,14 @@ THERESA MAY
 <br>
 
 <br>
+CONSERVATIVES AND AUSTERITY
+<br>
+<a href="http://www.independent.co.uk/voices/talk-of-diversity-is-hypocritical-when-tory-policies-have-made-life-worse-for-ethnic-minorities-a6846501.html">Talk of diversity is hypocritical when Tory policies have made life worse for ethnic minorities</a>
+<br>
+
+
+
+<br>
 POLICE
 <br>
 <a href="http://www.dailymail.co.uk/news/article-3089363/This-crying-wolf-stop-Furious-Theresa-attacks-police-officers-scaremongering-budget-cuts.html">'This crying wolf HAS to stop': Furious Home Secretary Theresa May attacks police officers for 'scaremongering' over budget cuts.</a>
