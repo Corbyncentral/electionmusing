@@ -78,6 +78,11 @@ IMMIGRATION
 <a href="http://evolvepolitics.com/michael-rosen-absolutely-nails-britains-obsession-immigration-complete-utter-nonsense/">Michael Rosen absolutely nails why Britain’s obsession with immigration is complete and utter nonsense</a>
 <br>
 
+<br>
+NASTY PARTY
+<br>
+<a href="http://archive.is/ZGHEA">Fury after Tory councillor posts offensive tweets of colonial-era Africa with joking references to spears and loin cloths</a>
+<br>
 
 <br>
 CORRUPTION
