@@ -181,6 +181,14 @@ PANAMA PAPERS
 <br>
 
 
+<br>
+MICHAEL FALLON
+<br>
+<a href="http://www.mirror.co.uk/news/politics/tory-michael-fallon-just-confronted-10418906">Tory Michael Fallon just got ambushed on live TV for spreading 'b*****ks' about Labour</a>
+<br>
+<a href="http://anotherangryvoice.blogspot.co.uk/2017/05/the-tory-defence-minister-michael.html">The Tory defence minister Michael Fallon is a liar</a>
+<br>
+
 
 <br>
 SUPPORTING LABOUR
