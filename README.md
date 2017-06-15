@@ -66,6 +66,8 @@ TERROR
 <br>
 <a href="http://www.mirror.co.uk/news/politics/six-times-tories-said-exactly-10511011">6 times Tories said exactly what they are now attacking Jeremy Corbyn for saying about the war on terror</a>
 <br>
+<a href="http://www.huffingtonpost.co.uk/john-wight/saudi-arabia-extremism_b_16948624.html">Fighting Extremism While Cosying Up To Saudi Arabia Is Hypocrisy</a>
+<br>
 
 
 <br>
