@@ -82,3 +82,9 @@ CORRUPTION
 <a href="http://www.heraldscotland.com/news/15298376.Video__New_concerns_over_top_Tories__links_to_election_count_firm_as_warning_over_leaks_emerge/?ref=twtrec">New concerns over top Tories' links to election count firm as warning over leaks emerge</a>
 <br>
 
+
+<br>
+NHS
+<br>
+<a href="http://nyebevannews.co.uk/health-foundation-half-the-money-tories-promised-in-2015-left-the-nhs-for-private-companies/">Health foundation:Half the money promised in 2015 left the NHS for private companies</a>
+<br>
