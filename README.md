@@ -20,6 +20,8 @@ BBC
 <br>
 <a href="https://www.opendemocracy.net/ourbeeb/tim-holmes/is-question-time-s-audience-producer-really-fascist">Is BBC Question Time’s audience producer really a fascist?</a>
 <br>
+<a href="http://www.irishnews.com/magazine/2017/01/18/news/bbc-breached-accuracy-with-jeremy-corbyn-shoot-to-kill-comment-891728/">BBC breached accuracy with Jeremy Corbyn shoot-to-kill comment</a>
+<br>
 
 <br>
 JEREMY CORBYN
