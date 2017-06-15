@@ -189,6 +189,8 @@ MICHAEL FALLON
 <br>
 <a href="http://anotherangryvoice.blogspot.co.uk/2017/05/the-tory-defence-minister-michael.html">The Tory defence minister Michael Fallon is a liar</a>
 <br>
+<a href="https://labourfriendsoftheforces.org.uk/2017/05/22/michael-fallon-skips-defence-debate-to-campaign-in-ilford/">Michael Fallon skips defence debate to campaign in Ilford</a>
+<br>
 
 
 <br>
