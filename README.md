@@ -101,6 +101,13 @@ POLICE
 <br>
 
 <br>
+FIRE
+<br>
+<a href="http://www.independent.co.uk/voices/election-tories-labour-corbyn-fire-service-dangerous-cuts-a7773826.html">As a firefighter, I know that fire service cuts brought in by the Tories are just as dangerous as those to the police</a>
+<br>
+
+
+<br>
 IMMIGRATION
 <br>
 <a href="http://evolvepolitics.com/michael-rosen-absolutely-nails-britains-obsession-immigration-complete-utter-nonsense/">Michael Rosen absolutely nails why Britain’s obsession with immigration is complete and utter nonsense</a>
