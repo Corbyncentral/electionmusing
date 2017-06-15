@@ -50,6 +50,8 @@ JEREMY CORBYN
 <br>
 <a href="https://jacobinmag.com/2017/06/jeremy-corbyn-attacks-media-labour-election-prime-minister">A History of Sabotaging Jeremy Corbyn</a>
 <br>
+<a href="http://www.lse.ac.uk/media@lse/research/pdf/JeremyCorbyn/Cobyn-Report-FINAL.pdf">Journalistic Representations of Jeremy Corbyn in the British Press</a>
+<br>
 
 <br>
 TERROR
