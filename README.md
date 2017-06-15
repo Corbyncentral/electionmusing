@@ -96,6 +96,8 @@ CORRUPTION
 <br>
 <a href="http://theleveller.org/2016/02/hsbc/">The Bank You Can’t Afford To Offend</a>
 <br>
+<a href="http://nicholaswilson.com/the-corporate-panopticon-britain-today/">The Corporate Panopticon – how HSBC controls society</a>
+<br>
 
 <br>
 NHS
