@@ -133,7 +133,8 @@ FIRE
 <br>
 <a href="https://www.thecanary.co/2017/06/15/rapper-akala-smashes-biggest-lie-grenfell-disaster-whole-country-see-video/">Rapper Akala smashes the biggest lie about the Grenfell disaster, for the whole country to see</a>
 <br>
-
+<a href="https://www.theguardian.com/uk-news/2017/jun/15/experts-warned-government-against-cladding-material-used-on-grenfell">Experts warned government against cladding material used on Grenfell</a>
+<br>
 
 <br>
 IMMIGRATION
