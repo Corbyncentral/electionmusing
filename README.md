@@ -34,6 +34,8 @@ BBC
 <br>
 JEREMY CORBYN
 <br>
+<a href="https://www.opendemocracy.net/luke-davies/re-examining-corbyns-dangerous-friendships">We need to re-examine Corbyn's so-called 'dangerous friendships'</a>
+<br>
 <a href="http://www.thelondoneconomic.com/tle-pick/think-jeremy-corbyn-is-a-loser-oh-dear-youve-been-brainwashed/18/08/">Think Jeremy Corbyn is a loser, oh dear, you've been brainwashed</a>
 <br>
 <a href="http://www.thelondoneconomic.com/news/politics/facebook-comment-jeremy-corbyn-going-viral/31/05/">Facebook comment about Jeremy Corbyn going viral</a>
