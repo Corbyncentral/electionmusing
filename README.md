@@ -215,6 +215,8 @@ MICHAEL FALLON
 <br>
 <a href="http://www.dailyrecord.co.uk/news/uk-world-news/watch-key-tory-michael-fallon-10519221">Tory Michael Fallon is caught twisting Jeremy Corbyn's words about terrorism on live TV</a>
 <br>
+<a href="https://www.theguardian.com/politics/2017/may/27/fallon-left-red-faced-after-condemning-boris-johnson-extremism-comments">Fallon left red faced after condemning Boris Johnson</a>
+<br>
 
 
 <br>
