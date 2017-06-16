@@ -313,7 +313,8 @@ NASTY PARTY
 <br>
 <a href="https://www.theguardian.com/commentisfree/2014/nov/10/millionaire-tory-mp-tenants-estate-flats-richard-benyon">The story of the millionaire Tory MP and the tenants facing homelessness</a>
 <br>
-
+<a href="http://www.express.co.uk/news/politics/610305/IDSMurder-left-wing-twitter-trends-Iain-Duncan-Smith-Welfare">#IDSMurder trends as Twitter users vent fury about Iain Duncan Smith welfare policy</a>
+<br>
 <br>
 ORGREAVE
 <br>
