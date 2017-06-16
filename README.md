@@ -127,6 +127,8 @@ DISABILITY
 <br>
 <a href="https://www.theguardian.com/society/2015/jul/21/conservatives-redefining-sick-disabled-welfare-bill">The Tories are callously redefining what it means to be sick or disabled</a>
 <br>
+<a href="http://www.disabilitynewsservice.com/shadow-chancellor-backs-calls-to-prosecute-iain-duncan-smith-over-wca-deaths/">Shadow chancellor backs calls to prosecute Iain Duncan Smith over WCA deaths</a>
+<br>
 
 <br>
 POLICE
