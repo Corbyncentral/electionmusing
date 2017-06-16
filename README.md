@@ -350,6 +350,8 @@ NHS
 <br>
 <a href="http://www.mirror.co.uk/news/politics/what-naylor-report-everything-explained-10543351">What is the Naylor Report? A summary of the plans behind Theresa May's big NHS property sell-off</a>
 <br>
+<a href="https://www.theguardian.com/society/2017/jun/16/most-of-central-london-hospital-to-be-sold-off-secret-plans-reveal">Most of central London hospital to be sold off, plans reveal</a>
+<br>
 
 <br>
 UN
