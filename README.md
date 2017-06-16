@@ -196,7 +196,8 @@ ENVIRONMENT
 <br>
 <a href="https://www.theguardian.com/environment/2015/jul/24/the-9-green-policies-killed-off-by-tory-government">The nine green policies killed off by the Tory government</a>
 <br>
-
+<a href="http://www.independent.co.uk/environment/climate-change-department-killed-off-by-theresa-may-in-plain-stupid-and-deeply-worrying-move-a7137166.html">Climate change department closed by Theresa May in 'plain stupid' and 'deeply worrying' move</a>
+<br>
 <br>
 IMMIGRATION
 <br>
