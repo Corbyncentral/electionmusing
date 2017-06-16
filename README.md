@@ -19,6 +19,8 @@ NEGATIVE TACTICS
 <br>
 <a href="https://politicalscrapbook.net/2017/06/bitter-tory-councillor-wants-to-ban-students-from-voting-in-university-seats/">BITTER TORY COUNCILLOR WANTS TO BAN STUDENTS FROM VOTING IN UNIVERSITY SEATS</a>
 <br>
+<a href="http://www.mirror.co.uk/news/politics/no-show-tory-candidates-pulling-10570816">No Show Tory candidates are pulling out of hustings because they're too chicken to face the public</a>
+<br>
 
 <br>
 BBC
