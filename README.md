@@ -141,7 +141,8 @@ FIRE
 <br>
 <a href="http://www.thelondoneconomic.com/tle-pick/revealed-privatisation-cuts-planned-uk-fire-brigade/05/06/">Revealed: UK Fire Brigade Slashed By Cuts And Failed Privatisation</a>
 <br>
-
+<a href="http://www.independent.co.uk/news/uk/politics/government-criticised-over-quietly-abandoning-requirement-for-new-schools-to-install-fire-sprinklers-a7219276.html">Government criticised over quietly abandoning requirement for new schools to install fire sprinkler systems</a>
+<br>
 
 <br>
 HOUSING
