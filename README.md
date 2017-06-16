@@ -89,6 +89,8 @@ TERROR
 <br>
 <a href="http://www.huffingtonpost.co.uk/john-wight/saudi-arabia-extremism_b_16948624.html">Fighting Extremism While Cosying Up To Saudi Arabia Is Hypocrisy</a>
 <br>
+<a href="http://www.independent.co.uk/news/uk/politics/uk-government-attempting-to-keep-details-of-secret-security-pact-with-saudi-arabia-hidden-from-a6783376.html">UK Government attempting to keep details of secret security pact with Saudi Arabia hidden from public</a>
+<br>
 <a href="https://www.theguardian.com/commentisfree/2017/may/27/libya-fallout-theresa-may-failed-terror">The Libya fallout shows how Theresa May has failed on terror</a>
 <br>
 
