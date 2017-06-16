@@ -205,6 +205,20 @@ IMMIGRATION
 <a href="https://www.opendemocracy.net/uk/usman-sheikh/theresa-mays-dangerous-record-on-immigration">Theresa May's dangerous record on immigration</a>
 <br>
 
+<br>
+RIGHT WING
+<br>
+<a href="http://www.independent.co.uk/news/uk/politics/tory-voters-more-right-wing-ukip-poll-latest-theresa-may-nigel-farage-a7737491.html">Tory voters think their party is now more right-wing than Ukip, poll finds</a>
+<br>
+<a href="http://www.newstatesman.com/politics/uk/2017/03/theresa-may-delivering-ukip-2015-manifesto">May is delivering the Ukip 2015 manifesto</a>
+<br>
+<a href="http://www.politics.co.uk/blogs/2016/10/05/the-tories-have-finally-become-ukip">The Tories have finally become Ukip</a>
+<br>
+<a href="http://metro.co.uk/2017/04/27/some-of-bnps-2005-election-pledges-are-now-mainstream-policy-6599296/">Some of the BNP’s 2005 election pledges are now mainstream policy</a>
+<br>
+
+
+
 
 <br>
 EMPLOYMENT
