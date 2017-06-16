@@ -1,4 +1,4 @@
-# electionmusing
+# election musing
 <br>
 Some links to share
 <br>
@@ -375,6 +375,9 @@ BORIS JOHNSON
 <br>
 <a href="http://www.standard.co.uk/news/mayor/boris-says-sorry-over-blacks-have-lower-iqs-article-in-the-spectator-6630340.html">Boris says sorry over 'blacks have lower IQs' article</a>
 <br>
+<a href="http://www.mirror.co.uk/news/politics/boris-johnsons-most-cringeworthy-gaffes-10440606">Boris Johnson's most cringeworthy gaffes revealed after he insults Sikh woman on visit to holy temple</a>
+<br>
+
 
 <br>
 SUPPORTING LABOUR
