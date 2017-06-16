@@ -135,6 +135,9 @@ FIRE
 <br>
 <a href="https://www.theguardian.com/uk-news/2017/jun/15/experts-warned-government-against-cladding-material-used-on-grenfell">Experts warned government against cladding material used on Grenfell</a>
 <br>
+<a href="http://www.thelondoneconomic.com/tle-pick/revealed-privatisation-cuts-planned-uk-fire-brigade/05/06/">Revealed: UK Fire Brigade Slashed By Cuts And Failed Privatisation</a>
+<br>
+
 
 <br>
 HOUSING
