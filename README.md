@@ -340,6 +340,8 @@ ECONOMY
 <br>
 <a href="http://voxpoliticalonline.com/2015/04/25/the-labour-overspent-lie-debunked-again/">The Labour overspent lie dubunked again.</a>
 <br>
+<a href="http://www.primeeconomics.org/articles/guws3cyv3ctq9g7vg754p2zyymvc2f">Today's Observer newspaper (4th June), publishes a letter signed by 130 economists, under the heading "Labour’s manifesto proposals could be just what the economy needs"</a>
+<br>
 
 <br>
 MICHAEL FALLON
