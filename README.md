@@ -143,6 +143,8 @@ THERESA MAY
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/theresa-may-nuclear-test-error-trident-mps-vote-refuses-confirm-a7541481.html">No.10 admits Theresa May did know about nuclear test where missile 'veered towards America'</a>
 <br>
+<a href="http://www.independent.co.uk/news/uk/politics/theresa-may-trident-andrew-marr-interview-cover-up-watch-video-a7539896.html">Theresa May refuses to answer four times whether she knew about Government 'cover up' on Trident.</a>
+<br>
 <br>
 AUSTERITY
 <br>
