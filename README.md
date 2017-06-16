@@ -101,6 +101,8 @@ ARMED FORCES
 <br>
 <a href="http://www.mirror.co.uk/news/politics/tories-left-britain-defenceless-huge-10376621">Tories have left Britain defenceless as huge cuts in forces highlight their breathtaking hypocrisy</a>
 <br>
+<a href="http://www.telegraph.co.uk/news/2016/12/27/forces-braced-cuts-defence-cash-squeeze/">Forces braced for more cuts in defence cash squeeze</a>
+<br>
 
 <br>
 IRA
