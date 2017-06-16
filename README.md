@@ -365,6 +365,18 @@ JEREMY HUNT
 <br>
 
 <br>
+BORIS JOHNSON
+<br>
+<a href="https://www.theguardian.com/politics/video/2013/mar/24/boris-johnson-accused-nasty-video">Boris Johnson accused: 'you're a nasty piece of work' – video</a>
+<br>
+<a href="https://www.theguardian.com/politics/2009/mar/29/boris-johnson-channel-4">Extracts from an infamous audio tape in which Boris Johnson discusses a plan to have a tabloid journalist beaten up are to be broadcast tomorrow for the first time.</a>
+<br>
+<a href="https://www.theguardian.com/artanddesign/2017/apr/28/garden-bridge-dead-38m-public-money-repaid-boris-johnson">The garden bridge is dead – now £37m of public money must be repaid</a>
+<br>
+<a href="http://www.standard.co.uk/news/mayor/boris-says-sorry-over-blacks-have-lower-iqs-article-in-the-spectator-6630340.html">Boris says sorry over 'blacks have lower IQs' article</a>
+<br>
+
+<br>
 SUPPORTING LABOUR
 <br>
 <a href="http://skwawkbox.org.linkis.com/l5v64">“IN 2015 I WAS JUBILANT THE TORIES WON. NOW I’M VOTING LABOUR” #GE17</a>
