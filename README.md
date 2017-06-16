@@ -293,6 +293,7 @@ EMPLOYMENT
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/dwp-benefit-cuts-jobcentre-closures-local-travel-costs-further-pcs-a7547351.html">Unemployed will be forced to travel further to sign on as DWP plans to close 78 local Jobcentres</a>
 <br>
+
 <br>
 EDUCATION
 <br>
@@ -304,6 +305,9 @@ EDUCATION
 <br>
 <a href="http://www.independent.co.uk/voices/closing-libraries-is-a-fine-way-to-keep-the-poor-powerless-a6958631.html">Closing libraries is a fine way to keep the poor powerless</a>
 <br>
+<a href="https://amp.theguardian.com/money/2017/jun/15/uk-student-loan-debt-soars-to-more-than-100bn">UK student loan debt soars to more than £100bn</a>
+<br>
+
 <br>
 NASTY PARTY
 <br>
