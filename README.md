@@ -108,6 +108,8 @@ DUP
 <br>
 <a href="http://www.essay.uk.com/free-essays/history/paramilitary-forces-in-northern-ireland.php">Paramilitary forces in Northern Ireland</a>
 <br>
+<a href="http://www.irishtimes.com/news/environment/q-a-what-is-the-northern-ireland-cash-for-ash-scheme-1.2907866">Q&A: What is the Northern Ireland ‘cash for ash’ scheme?</a>
+<br>
 
 <br>
 THERESA MAY
