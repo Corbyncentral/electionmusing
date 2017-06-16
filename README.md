@@ -223,7 +223,8 @@ EDUCATION
 <br>
 <a href="https://www.theguardian.com/society/2017/feb/02/sure-start-centres-300-closed-since-2010">More than 350 Sure Start children's centres have closed since 2010</a>
 <br>
-
+<a href="http://www.independent.co.uk/voices/closing-libraries-is-a-fine-way-to-keep-the-poor-powerless-a6958631.html">Closing libraries is a fine way to keep the poor powerless</a>
+<br>
 <br>
 NASTY PARTY
 <br>
