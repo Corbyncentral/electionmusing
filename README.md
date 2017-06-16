@@ -96,6 +96,11 @@ TERROR
 <a href="https://www.theguardian.com/commentisfree/2017/may/27/libya-fallout-theresa-may-failed-terror">The Libya fallout shows how Theresa May has failed on terror</a>
 <br>
 
+<br>
+ARMED FORCES
+<br>
+<a href="http://www.mirror.co.uk/news/politics/tories-left-britain-defenceless-huge-10376621">Tories have left Britain defenceless as huge cuts in forces highlight their breathtaking hypocrisy</a>
+<br>
 
 <br>
 IRA
