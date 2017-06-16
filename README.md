@@ -25,6 +25,16 @@ NEGATIVE TACTICS
 <br>
 
 <br>
+ISRAEL
+<br>
+<a href="http://www.huffingtonpost.co.uk/entry/israeli-diplomat-shai-masot-tried-to-set-up-groups-to-undermine-crazy-corbyn-and-weirdo-supporters_uk_587491a6e4b0a1ff7042f0c2">Israeli Diplomat, Shai Masot, Tried To Set Up Groups To Undermine ‘Crazy’ Corbyn And ‘Weirdo’ Supporters</a>
+<br>
+<a href="https://www.theguardian.com/world/2017/jan/08/israeli-diplomat-shai-masot-plotted-against-mps-set-up-political-groups-labour">Israeli diplomat who plotted against MPs also set up political groups</a>
+<br>
+<a href="http://www.middleeasteye.net/columns/if-russia-had-plotted-take-down-british-minister-all-hell-would-have-broken-loose-1311627112">Boris Johnson says matter of Israel embassy plot is 'closed'. He's wrong - it's a scandal</a>
+<br>
+
+<br>
 BBC
 <br>
 <a href="http://dissidentvoice.org/2017/06/the-bbc-has-betrayed-its-own-rules-of-impartiality-yemen-saudi-arabia-and-the-general-election/">The BBC Has Betrayed Its Own Rules of Impartiality: Yemen, Saudi Arabia and the General Election</a>
