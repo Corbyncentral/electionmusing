@@ -225,6 +225,9 @@ NASTY PARTY
 <br>
 <a href="http://www.standard.co.uk/news/politics/tories-rocked-by-new-bullying-storm-as-mp-lucy-allan-accused-of-vicious-abuse-of-sick-staff-member-a3139526.html">Tories rocked by new 'bullying' storm as MP Lucy Allan accused of 'vicious' abuse of sick staff member</a>
 <br>
+<a href="https://www.theguardian.com/commentisfree/2014/nov/10/millionaire-tory-mp-tenants-estate-flats-richard-benyon">The story of the millionaire Tory MP and the tenants facing homelessness</a>
+<br>
+
 
 <br>
 CONSERVATIVES AND THE PRESS
