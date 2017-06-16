@@ -34,6 +34,9 @@ ISRAEL
 <br>
 <a href="http://www.middleeasteye.net/columns/if-russia-had-plotted-take-down-british-minister-all-hell-would-have-broken-loose-1311627112">Boris Johnson says matter of Israel embassy plot is 'closed'. He's wrong - it's a scandal</a>
 <br>
+<a href="https://electronicintifada.net/blogs/asa-winstanley/labours-israel-lobby-plans-relaunch-campaign-against-corbyn">
+Labour’s Israel lobby plans to relaunch campaign against Corbyn</a>
+<br>
 
 <br>
 BBC
