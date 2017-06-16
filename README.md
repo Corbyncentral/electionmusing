@@ -166,6 +166,7 @@ THERESA MAY
 <br>
 <a href="http://www.mirror.co.uk/news/politics/theresa-skewered-live-tv-refusing-10326568">Theresa May skewered on live TV for refusing to accept nurses use food banks because of Tory austerity</a>
 <br>
+
 <br>
 AUSTERITY
 <br>
@@ -179,6 +180,7 @@ AUSTERITY
 <br>
 <a href="https://www.opendemocracy.net/5050/heather-mcrobie/austerity-policies-in-europe-are-fuelling-social-injustice-and-violating-human-">Austerity policies in Europe are fuelling social injustice - and violating human rights</a>
 <br>
+
 <br>
 DISABILITY
 <br>
@@ -250,6 +252,7 @@ ENVIRONMENT
 <br>
 <a href="http://www.independent.co.uk/environment/climate-change-department-killed-off-by-theresa-may-in-plain-stupid-and-deeply-worrying-move-a7137166.html">Climate change department closed by Theresa May in 'plain stupid' and 'deeply worrying' move</a>
 <br>
+
 <br>
 IMMIGRATION
 <br>
@@ -267,6 +270,7 @@ IMMIGRATION
 <br>
 <a href="http://www.independent.co.uk/student/news/theresa-may-wrongly-deported-48000-students-after-bbc-panorama-exposes-toeic-scam-a6958286.html">Theresa May wrongly deported 48,000 students after BBC Panorama exposes toxic scam.</a>
 <br>
+
 <br>
 RIGHT WING
 <br>
@@ -329,6 +333,7 @@ NASTY PARTY
 <br>
 <a href="http://www.express.co.uk/news/politics/610305/IDSMurder-left-wing-twitter-trends-Iain-Duncan-Smith-Welfare">#IDSMurder trends as Twitter users vent fury about Iain Duncan Smith welfare policy</a>
 <br>
+
 <br>
 ORGREAVE
 <br>
@@ -337,6 +342,11 @@ ORGREAVE
 <a href="https://www.theguardian.com/politics/2016/oct/31/government-rules-out-orgreave-inquiry">Government rules out Orgreave inquiry</a>
 <br>
 
+<br>
+INQUIRIES
+<br>
+<a href="https://www.theguardian.com/commentisfree/2013/jun/25/politicians-inquiries-lawrence-get-out-jail">Politicians who demand inquiries should be taken out and shot</a>
+<br>
 
 <br>
 CONSERVATIVES AND THE PRESS
