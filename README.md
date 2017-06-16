@@ -74,7 +74,7 @@ TERROR
 
 
 <br>
-CONSERVATIVES AND THE IRA
+IRA
 <br>
 <a href="http://www.belfasttelegraph.co.uk/sunday-life/conservative-club-honours-ira-bomber-gerry-mcgivern-by-lowering-union-flag-to-half-mast-34357680.html">Conservative Club honours IRA bomber Gerry McGivern by lowering Union flag to half mast</a>
 <br>
@@ -84,7 +84,7 @@ CONSERVATIVES AND THE IRA
 <br>
 
 <br>
-CONSERVATIVES AND THE DUP
+DUP
 <br>
 <a href="http://metro.co.uk/2017/06/09/tories-to-form-coalition-government-with-anti-gay-marriage-dup-6697769/">Tories to form government with DUP – which has links to terrorism</a>
 <br>
@@ -108,7 +108,7 @@ THERESA MAY
 <br>
 
 <br>
-CONSERVATIVES AND AUSTERITY
+AUSTERITY
 <br>
 <a href="http://www.independent.co.uk/voices/talk-of-diversity-is-hypocritical-when-tory-policies-have-made-life-worse-for-ethnic-minorities-a6846501.html">Talk of diversity is hypocritical when Tory policies have made life worse for ethnic minorities</a>
 <br>
@@ -121,11 +121,12 @@ CONSERVATIVES AND AUSTERITY
 <a href="https://www.opendemocracy.net/5050/heather-mcrobie/austerity-policies-in-europe-are-fuelling-social-injustice-and-violating-human-">Austerity policies in Europe are fuelling social injustice - and violating human rights</a>
 <br>
 <br>
-CONSERVATIVES AND DISABILITY
+DISABILITY
 <br>
 <a href="https://www.theguardian.com/commentisfree/2012/jan/18/conservative-party-attacks-disabled-people">I left the Conservative party over its attacks on disabled people</a>
 <br>
-
+<a href="https://www.theguardian.com/society/2015/jul/21/conservatives-redefining-sick-disabled-welfare-bill">The Tories are callously redefining what it means to be sick or disabled</a>
+<br>
 
 <br>
 POLICE
