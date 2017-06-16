@@ -21,6 +21,8 @@ NEGATIVE TACTICS
 <br>
 <a href="http://www.mirror.co.uk/news/politics/no-show-tory-candidates-pulling-10570816">No Show Tory candidates are pulling out of hustings because they're too chicken to face the public</a>
 <br>
+<a href="http://www.independent.co.uk/news/uk/politics/philip-davies-filibuster-domestic-violence-a7479266.html">Here are some of the bills Tory MP Philip Davies has filibustered</a>
+<br>
 
 <br>
 BBC
