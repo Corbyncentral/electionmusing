@@ -310,5 +310,7 @@ SUPPORTING LABOUR
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/election-2017-students-turn-out-jeremy-corbyn-labour-liberal-democrats-nick-clegg-tuition-fees-a7717856.html">Election 2017: Student voter registration rockets with most vowing to back Jeremy Corbyn's Labour</a>
 <br>
+<a href="https://join.peoplesmomentum.com">Join Momentum</a>
+<br>
 <a href="https://join.labour.org.uk">Join Labour</a>
 <br>
