@@ -198,7 +198,7 @@ NASTY PARTY
 
 
 <br>
-CORRUPTION
+CORRUPTION ALLEGATIONS
 <br>
 <a href="https://www.opendemocracy.net/uk/joel-benjamin/why-hsbc-s-indirect-donations-to-conservatives-and-buzzfeed-s-dismissal-as-conspira">Why HSBC’s indirect donations to the Conservatives (and Buzzfeed’s dismissal as a 'conspiracy') matters to our democracy</a>
 <br>
@@ -264,7 +264,7 @@ BREXIT
 
 
 <br>
-PANAMA PAPERS
+PANAMA PAPERS SCANDAL
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/leaked-papers-link-home-secretary-amber-rudd-to-bahamas-offshore-tax-haven-a7321676.html">Leaked papers 'link Home Secretary Amber Rudd to Bahamas offshore tax haven'</a>
 <br>
@@ -309,6 +309,8 @@ SUPPORTING LABOUR
 <a href="http://skwawkbox.org.linkis.com/l5v64">“IN 2015 I WAS JUBILANT THE TORIES WON. NOW I’M VOTING LABOUR” #GE17</a>
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/election-2017-students-turn-out-jeremy-corbyn-labour-liberal-democrats-nick-clegg-tuition-fees-a7717856.html">Election 2017: Student voter registration rockets with most vowing to back Jeremy Corbyn's Labour</a>
+<br>
+<a href="http://www.thepeoplesassembly.org.uk">People's Assembly Against Austerity</a>
 <br>
 <a href="https://join.peoplesmomentum.com">Join Momentum</a>
 <br>
