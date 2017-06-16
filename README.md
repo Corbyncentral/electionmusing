@@ -110,6 +110,8 @@ DUP
 <br>
 <a href="http://www.irishtimes.com/news/environment/q-a-what-is-the-northern-ireland-cash-for-ash-scheme-1.2907866">Q&A: What is the Northern Ireland ‘cash for ash’ scheme?</a>
 <br>
+<a href="http://www.belfastdaily.co.uk/2013/04/18/dup-man-jailed-over-pipe-bomb-attack-on-polish-family/">DUP MAN JAILED OVER PIPE BOMB ATTACK ON POLISH FAMILY</a>
+<br>
 
 <br>
 THERESA MAY
