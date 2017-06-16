@@ -200,6 +200,11 @@ NASTY PARTY
 <a href="http://www.standard.co.uk/news/politics/tories-rocked-by-new-bullying-storm-as-mp-lucy-allan-accused-of-vicious-abuse-of-sick-staff-member-a3139526.html">Tories rocked by new 'bullying' storm as MP Lucy Allan accused of 'vicious' abuse of sick staff member</a>
 <br>
 
+<br>
+CONSERVATIVES AND THE PRESS
+<br>
+<a href="http://www.telegraph.co.uk/news/2017/05/18/tories-pledge-drop-leveson-part-two-investigation-corrupt-dealings/">Tories pledge to drop Leveson part two investigation into corrupt dealings between press and police</a>
+<br>
 
 <br>
 CORRUPTION ALLEGATIONS
