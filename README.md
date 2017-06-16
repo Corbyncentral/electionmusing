@@ -445,6 +445,13 @@ ANDREA LEADSOM
 <a href="http://uk.businessinsider.com/andrea-leadsom-cv-still-has-alleged-inaccuracies-2016-7">Andrea Leadsom has finally released her full CV — but people say there are STILL inaccuracies</a>
 <br>
 <br>
+PHILIP HAMMOND
+<br>
+<a href="http://www.prweek.com/article/1359307/foreign-secretary-latest-mp-stir-controversy-marauding-migrant-comment">Foreign Secretary Philip Hammond is facing a backlash over his choice of words in referring to migrants trying to get to the UK</a>
+<br>
+<a href="http://www.dailypost.co.uk/news/north-wales-news/chancellor-philip-hammond-dodges-question-13119536">Chancellor Philip Hammond dodges question about housing firm he has shares in</a>
+<br>
+<br>
 SUPPORTING LABOUR
 <br>
 <a href="http://skwawkbox.org.linkis.com/l5v64">“IN 2015 I WAS JUBILANT THE TORIES WON. NOW I’M VOTING LABOUR” #GE17</a>
