@@ -141,6 +141,8 @@ THERESA MAY
 <br>
 <a href="http://metro.co.uk/2017/06/16/angry-crowds-shout-coward-and-murderer-at-theresa-may-as-she-leaves-grenfell-tower-relief-centre-6714513/">Angry crowds shout ‘coward’ and ‘murderer’ at Theresa May as she leaves Grenfell Tower relief centre</a>
 <br>
+<a href="http://www.independent.co.uk/news/uk/politics/theresa-may-nuclear-test-error-trident-mps-vote-refuses-confirm-a7541481.html">No.10 admits Theresa May did know about nuclear test where missile 'veered towards America'</a>
+<br>
 <br>
 AUSTERITY
 <br>
