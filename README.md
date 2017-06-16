@@ -178,6 +178,15 @@ HOUSING
 <a href="http://www.mirror.co.uk/news/uk-news/richest-mp-britain-slams-welfare-3178089">Richest MP in Britain slams welfare state but makes £120k a year in housing benefit</a>
 <br>
 
+<br>
+ENVIRONMENT
+<br>
+<a href="http://www.telegraph.co.uk/news/earth/energy/fracking/12054726/MPs-clear-the-way-for-fracking-to-start-under-National-Parks.html">MPs clear the way for fracking to start under National Park</a>
+<br>
+<a href="https://www.theguardian.com/environment/2017/apr/25/government-delay-air-pollution-plan-due-to-election-dishonest">Tories 'on very dodgy ground' over delay of air pollution plan, say experts</a>
+<br>
+<a href="https://www.theguardian.com/environment/2015/jul/24/the-9-green-policies-killed-off-by-tory-government">The nine green policies killed off by the Tory government</a>
+<br>
 
 <br>
 IMMIGRATION
