@@ -347,6 +347,8 @@ INQUIRIES
 <br>
 <a href="https://www.theguardian.com/commentisfree/2013/jun/25/politicians-inquiries-lawrence-get-out-jail">Politicians who demand inquiries should be taken out and shot</a>
 <br>
+<a href="https://www.theguardian.com/uk-news/2017/jun/15/theresa-may-announces-public-inquiry-into-grenfell-tower-fire">Theresa May announces public inquiry into Grenfell Tower fire</a>
+<br>
 
 <br>
 CONSERVATIVES AND THE PRESS
