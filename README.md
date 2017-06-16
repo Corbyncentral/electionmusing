@@ -352,7 +352,8 @@ BREXIT
 <br>
 <a href="https://www.theguardian.com/commentisfree/2017/apr/04/brutal-regimes-tory-brexit-eu-theresa-may-saudi-arabia-terror">This is what Brexit looks like: cosying up to brutal regimes</a>
 <br>
-
+<a href="http://www.independent.co.uk/news/uk/politics/brexit-talks-opening-position-papers-government-yet-to-send-submit-latest-news-a7792531.html">Brexit talks: Government yet to submit opening positions despite EU negotiations being days away</a>
+<br>
 
 <br>
 PANAMA PAPERS SCANDAL
