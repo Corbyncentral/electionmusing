@@ -211,6 +211,8 @@ IMMIGRATION
 <br>
 <a href="https://www.opendemocracy.net/uk/usman-sheikh/theresa-mays-dangerous-record-on-immigration">Theresa May's dangerous record on immigration</a>
 <br>
+<a href="http://www.telegraph.co.uk/news/uknews/immigration/10232988/Race-hate-inquiry-into-Home-Office-go-home-billboards.html">Race-hate inquiry into Home Office 'go home' billboards</a>
+<br>
 
 <br>
 RIGHT WING
