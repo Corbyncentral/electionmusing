@@ -129,6 +129,8 @@ DISABILITY
 <br>
 <a href="http://www.disabilitynewsservice.com/shadow-chancellor-backs-calls-to-prosecute-iain-duncan-smith-over-wca-deaths/">Shadow chancellor backs calls to prosecute Iain Duncan Smith over WCA deaths</a>
 <br>
+<a href="http://anotherangryvoice.blogspot.co.uk/2012/11/iain-duncan-smiths-callous-disrespect.html">Iain Duncan Smith's callous contempt for the dead</a>
+<br>
 
 <br>
 POLICE
