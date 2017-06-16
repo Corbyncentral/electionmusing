@@ -170,11 +170,13 @@ EMPLOYMENT
 <br>
 
 <br>
-SCHOOLS
+EDUCATION
 <br>
 <a href="http://www.mirror.co.uk/news/politics/how-tory-school-funding-cuts-10047684">How will Tory school funding cuts hit my area? Search by postcode to see shocking figures</a>
 <br>
 <a href="https://inews.co.uk/essentials/news/education/headteachers-letter-general-election-2017/">Thousands of headteachers write to parents warning of school funding cuts before election</a>
+<br>
+<a href="https://www.theguardian.com/society/2017/feb/02/sure-start-centres-300-closed-since-2010">More than 350 Sure Start children's centres have closed since 2010</a>
 <br>
 
 <br>
