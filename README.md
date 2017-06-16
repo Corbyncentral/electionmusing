@@ -116,6 +116,8 @@ THERESA MAY
 <br>
 <a href="http://www.telegraph.co.uk/news/uknews/immigration/9345345/Theresa-May-accused-of-unacceptable-and-regrettable-behaviour-by-judge.html">Theresa May accused of unacceptable and regrettable behaviour by judge</a>
 <br>
+<a href="http://www.newstatesman.com/politics/uk/2017/06/jo-cox-helped-transform-britain-better-lets-remember-her-joy">Theresa May's plans to regulate the internet are late, unworkable and wrong</a>
+<br>
 <br>
 AUSTERITY
 <br>
