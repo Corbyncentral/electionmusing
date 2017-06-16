@@ -436,6 +436,15 @@ BORIS JOHNSON
 <a href="https://www.theguardian.com/uk-news/2016/dec/14/boris-johnsons-unused-water-cannon-were-fitted-with-1000-stereos">Boris Johnson's unused water cannon had £1,000 stereos fitted</a>
 <br>
 <br>
+ANDREA LEADSOM
+<br>
+<a href="http://www.newstatesman.com/politics/uk/2016/07/9-reasons-you-should-be-truly-terrified-andrea-leadsom-becoming-prime-minister">9 reasons you should be truly terrified of Andrea Leadsom becoming Prime Minister</a>
+<br>
+<a href="http://www.independent.co.uk/news/uk/politics/revealed-how-city-minister-andrea-leadsom-used-controversial-trusts-to-reduce-her-potential-9268469.html">Revealed: how City minister Andrea Leadsom used controversial trusts to reduce her potential inheritance-tax bill</a>
+<br>
+<a href="http://uk.businessinsider.com/andrea-leadsom-cv-still-has-alleged-inaccuracies-2016-7">Andrea Leadsom has finally released her full CV — but people say there are STILL inaccuracies</a>
+<br>
+<br>
 SUPPORTING LABOUR
 <br>
 <a href="http://skwawkbox.org.linkis.com/l5v64">“IN 2015 I WAS JUBILANT THE TORIES WON. NOW I’M VOTING LABOUR” #GE17</a>
