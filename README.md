@@ -326,6 +326,8 @@ CORRUPTION ALLEGATIONS
 <br>
 NHS
 <br>
+<a href="http://theleveller.org/2017/02/may-nhs-no-facts/">Alternative facts? On the NHS, May wants to give NO facts</a>
+<br>
 <a href="http://nyebevannews.co.uk/health-foundation-half-the-money-tories-promised-in-2015-left-the-nhs-for-private-companies/">Health foundation:Half the money promised in 2015 left the NHS for private companies</a>
 <br>
 <a href="https://tompride.wordpress.com/2017/05/08/nhs-tories-silent-on-introduction-of-145-charges-for-40-minute-gp-consultations/">NHS: Tories SILENT on introduction of £145 charges for 40-minute GP consultations</a>
