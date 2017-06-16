@@ -288,6 +288,15 @@ MICHAEL FALLON
 <a href="https://www.theguardian.com/politics/2017/may/27/fallon-left-red-faced-after-condemning-boris-johnson-extremism-comments">Fallon left red faced after condemning Boris Johnson</a>
 <br>
 
+<br>
+JEREMY HUNT
+<br>
+
+<a href="http://www.independent.co.uk/news/uk/jeremy-hunt-accused-of-lying-and-manipulating-statistics-by-junior-doctor-during-live-bbc-interview-a6861116.html">Jeremy Hunt accused of 'lying and manipulating statistics' by junior doctor during live BBC interview</a>
+<br>
+<a href="http://www.thelondoneconomic.com/news/politics/jeremy-hunt-accused-gp-lying-election-night-reply-dynamite/13/06/">Jeremy Hunt accused this GP of lying on election night. Her reply is dynamite.</a>
+<br>
+
 
 <br>
 SUPPORTING LABOUR
