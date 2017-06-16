@@ -231,6 +231,8 @@ CONSERVATIVES AND THE PRESS
 <br>
 CORRUPTION ALLEGATIONS
 <br>
+<a href="https://sleazeexpo.wordpress.com/">Voter count model election rigging</a>
+<br>
 <a href="https://www.opendemocracy.net/uk/joel-benjamin/why-hsbc-s-indirect-donations-to-conservatives-and-buzzfeed-s-dismissal-as-conspira">Why HSBC’s indirect donations to the Conservatives (and Buzzfeed’s dismissal as a 'conspiracy') matters to our democracy</a>
 <br>
 <a href="http://www.heraldscotland.com/news/15298376.Video__New_concerns_over_top_Tories__links_to_election_count_firm_as_warning_over_leaks_emerge/?ref=twtrec">New concerns over top Tories' links to election count firm as warning over leaks emerge</a>
