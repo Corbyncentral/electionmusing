@@ -150,6 +150,8 @@ THERESA MAY
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/theresa-may-trident-andrew-marr-interview-cover-up-watch-video-a7539896.html">Theresa May refuses to answer four times whether she knew about Government 'cover up' on Trident.</a>
 <br>
+<a href="http://www.mirror.co.uk/news/politics/theresa-skewered-live-tv-refusing-10326568">Theresa May skewered on live TV for refusing to accept nurses use food banks because of Tory austerity</a>
+<br>
 <br>
 AUSTERITY
 <br>
