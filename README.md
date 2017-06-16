@@ -121,6 +121,8 @@ POLICE
 <br>
 <a href="http://www.ibtimes.co.uk/surrey-pcc-theresa-may-single-most-damaging-thing-facing-police-1555834">Surrey PCC: Theresa May is 'the single most damaging thing' facing the police</a>
 <br>
+<a href="https://www.theguardian.com/uk-news/2017/jun/06/police-cuts-hit-uk-fight-against-terrorism-says-former-security-chief">Police cuts hit UK fight against terrorism, says former security chief</a>
+<br>
 
 <br>
 FIRE
