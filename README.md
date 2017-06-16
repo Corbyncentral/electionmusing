@@ -31,6 +31,8 @@ ISRAEL
 <br>
 <a href="https://www.theguardian.com/world/2017/jan/08/israeli-diplomat-shai-masot-plotted-against-mps-set-up-political-groups-labour">Israeli diplomat who plotted against MPs also set up political groups</a>
 <br>
+<a href="https://electronicintifada.net/content/how-israel-lobby-manufactured-uk-labour-partys-anti-semitism-crisis/16481">How Israel lobby manufactured UK Labour Party’s anti-Semitism crisis</a>
+<br>
 <a href="http://www.middleeasteye.net/columns/if-russia-had-plotted-take-down-british-minister-all-hell-would-have-broken-loose-1311627112">Boris Johnson says matter of Israel embassy plot is 'closed'. He's wrong - it's a scandal</a>
 <br>
 
