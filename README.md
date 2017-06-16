@@ -136,6 +136,8 @@ THERESA MAY
 <br>
 <a href="https://www.thepileus.com/uk/theresa-may-and-the-missing-child-sex-abuse-files/">Theresa May and the ‘missing’ child sex abuse files</a>
 <br>
+<a href="http://www.express.co.uk/news/uk/356693/Fears-of-child-sex-abuse-cover-up-as-Theresa-May-rejects-calls-for-super-inquiry">Fears of child sex abuse 'cover-up' as Theresa May rejects calls for super inquiry</a>
+<br>
 <a href="http://www.independent.co.uk/news/uk/politics/home-office-criticised-for-blocking-freedom-of-information-requests-while-led-by-theresa-may-a7546071.html">Theresa May condemned for excessive secrecy</a>
 <br>
 <a href="http://www.telegraph.co.uk/news/uknews/immigration/9345345/Theresa-May-accused-of-unacceptable-and-regrettable-behaviour-by-judge.html">Theresa May accused of unacceptable and regrettable behaviour by judge</a>
