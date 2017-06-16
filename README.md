@@ -1,8 +1,8 @@
-# election musing
+# Political Links
 <br>
-Some links to share
+Links to share
 <br>
-Regular updates, be sure to bookmark and return!
+There will be regular updates, please bookmark!
 <br>
 
 
