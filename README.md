@@ -1,6 +1,5 @@
 # Political Links
-<br>
-Links to share
+
 <br>
 There will be regular updates, please bookmark!
 <br>
