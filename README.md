@@ -336,6 +336,8 @@ CORRUPTION ALLEGATIONS
 <br>
 <a href="https://www.opendemocracy.net/uk/joel-benjamin/why-hsbc-s-indirect-donations-to-conservatives-and-buzzfeed-s-dismissal-as-conspira">Why HSBC’s indirect donations to the Conservatives (and Buzzfeed’s dismissal as a 'conspiracy') matters to our democracy</a>
 <br>
+<a href="http://www.independent.co.uk/news/uk/politics/secrecy-over-public-spending-exposed-taxpayers-money-government-corruption-where-is-taxpayers-money-a7327186.html">‘Secrecy’ over public spending exposed by Transparency International report</a>
+<br>
 <a href="http://www.heraldscotland.com/news/15298376.Video__New_concerns_over_top_Tories__links_to_election_count_firm_as_warning_over_leaks_emerge/?ref=twtrec">New concerns over top Tories' links to election count firm as warning over leaks emerge</a>
 <br>
 <a href="https://thesecretbarrister.com/2017/05/10/myth-busting-the-tory-election-fraud-a-10-point-guide/">Myth-busting the “Tory election fraud” – A 10-point guide</a>
