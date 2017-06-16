@@ -427,8 +427,8 @@ BORIS JOHNSON
 <br>
 <a href="http://www.mirror.co.uk/news/politics/boris-johnsons-most-cringeworthy-gaffes-10440606">Boris Johnson's most cringeworthy gaffes revealed after he insults Sikh woman on visit to holy temple</a>
 <br>
-
-
+<a href="https://www.theguardian.com/uk-news/2016/dec/14/boris-johnsons-unused-water-cannon-were-fitted-with-1000-stereos">Boris Johnson's unused water cannon had £1,000 stereos fitted</a>
+<br>
 <br>
 SUPPORTING LABOUR
 <br>
