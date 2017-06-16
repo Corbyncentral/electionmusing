@@ -301,7 +301,8 @@ JEREMY HUNT
 <br>
 <a href="http://www.thelondoneconomic.com/news/politics/jeremy-hunt-accused-gp-lying-election-night-reply-dynamite/13/06/">Jeremy Hunt accused this GP of lying on election night. Her reply is dynamite.</a>
 <br>
-
+<a href="http://www.mirror.co.uk/news/politics/jeremy-hunt-sparks-fury-giving-10631267">Jeremy Hunt sparks fury by giving sympathy instead of pay rise</a>
+<br>
 
 <br>
 SUPPORTING LABOUR
