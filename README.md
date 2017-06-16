@@ -153,6 +153,8 @@ HOUSING
 <br>
 <a href="http://www.redpepper.org.uk/private-tenants-need-protection/">Private tenants need protection</a>
 <br>
+<a href="http://www.mirror.co.uk/news/uk-news/richest-mp-britain-slams-welfare-3178089">Richest MP in Britain slams welfare state but makes £120k a year in housing benefit</a>
+<br>
 
 
 <br>
