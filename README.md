@@ -187,6 +187,8 @@ EDUCATION
 <br>
 NASTY PARTY
 <br>
+<a href="http://www.independent.co.uk/voices/letters/jeremy-corbyn-theresa-may-taxation-social-media-general-election-trident-a7739111.html">Theresa May knows the Tories are still 'the nasty party.'</a>
+<br>
 <a href="http://archive.is/ZGHEA">Fury after Tory councillor posts offensive tweets of colonial-era Africa with joking references to spears and loin cloths</a>
 <br>
 <a href="http://www.mirror.co.uk/news/politics/why-not-vote-conservatives-election-10303180">Why should I not vote Conservative? 29 nasty policies you shouldn't forget in the 2017 general election</a>
