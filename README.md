@@ -348,6 +348,8 @@ ECONOMY
 <br>
 <a href="http://www.primeeconomics.org/articles/guws3cyv3ctq9g7vg754p2zyymvc2f">Today's Observer newspaper (4th June), publishes a letter signed by 130 economists, under the heading "Labour’s manifesto proposals could be just what the economy needs"</a>
 <br>
+<a href="https://www.politicshome.com/news/uk/social-affairs/welfare/news/84294/child-poverty-has-soared-400000-tories-came-power">Child poverty has soared by 400,000 since Tories came to power</a>
+<br>
 
 <br>
 MICHAEL FALLON
