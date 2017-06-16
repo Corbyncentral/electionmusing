@@ -118,6 +118,8 @@ CONSERVATIVES AND AUSTERITY
 <br>
 <a href="http://www.independent.co.uk/voices/conservatives-chancellor-george-osborne-ideology-austerity-economics-working-families-a7787776.html">Yes this really is the end of Tory austerity – because it was never about economics in the first place</a>
 <br>
+<a href="https://www.opendemocracy.net/5050/heather-mcrobie/austerity-policies-in-europe-are-fuelling-social-injustice-and-violating-human-">Austerity policies in Europe are fuelling social injustice - and violating human rights</a>
+<br>
 <br>
 POLICE
 <br>
