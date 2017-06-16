@@ -193,7 +193,7 @@ NASTY PARTY
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/tory-mp-defends-faking-death-threat-over-syria-air-strikes-vote-a6764766.html">Tory MP admits adding 'death threat' to Facebook post over Syria air strikes vote</a>
 <br>
-<a href="http://www.standard.co.uk/news/politics/tories-rocked-by-new-bullying-storm-as-mp-lucy-allan-accused-of-vicious-abuse-of-sick-staff-member-a3139526.html">Tories rocked by new 'bullying' storm as MP Lucy Allan accused of 'vicious' abuse of sick staff me</a>
+<a href="http://www.standard.co.uk/news/politics/tories-rocked-by-new-bullying-storm-as-mp-lucy-allan-accused-of-vicious-abuse-of-sick-staff-member-a3139526.html">Tories rocked by new 'bullying' storm as MP Lucy Allan accused of 'vicious' abuse of sick staff member</a>
 <br>
 
 
@@ -309,4 +309,6 @@ SUPPORTING LABOUR
 <a href="http://skwawkbox.org.linkis.com/l5v64">“IN 2015 I WAS JUBILANT THE TORIES WON. NOW I’M VOTING LABOUR” #GE17</a>
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/election-2017-students-turn-out-jeremy-corbyn-labour-liberal-democrats-nick-clegg-tuition-fees-a7717856.html">Election 2017: Student voter registration rockets with most vowing to back Jeremy Corbyn's Labour</a>
+<br>
+<a href="https://join.labour.org.uk">Join Labour</a>
 <br>
