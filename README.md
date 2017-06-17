@@ -166,6 +166,8 @@ THERESA MAY
 <br>
 <a href="http://www.mirror.co.uk/news/politics/theresa-skewered-live-tv-refusing-10326568">Theresa May skewered on live TV for refusing to accept nurses use food banks because of Tory austerity</a>
 <br>
+<a href="http://www.mirror.co.uk/news/politics/theresa-may-newsnight-grenfell-fire-10637288.amp">'Inhuman' Theresa May slammed for 'embarrassing' Newsnight interview as she's interrogated over misjudging public mood following Grenfell Tower tragedy</a>
+<br>
 
 <br>
 AUSTERITY
