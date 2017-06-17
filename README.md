@@ -77,7 +77,7 @@ JEREMY CORBYN
 <br>
 <a href="https://www.opendemocracy.net/uk/des-freedman-justin-schlosberg/jeremy-corbyn-impartiality-and-media-misrepresentation">Jeremy Corbyn, impartiality and media misrepresentation</a>
 <br>
-<a href="http://www.lse.ac.uk/media@lse/research/Mainstream-Media-Representations-of-Jeremy-Corbyn.aspx">Journalistic Representations of Jeremy Corbyn in the British Press</a>
+<a href="http://www.lse.ac.uk/media@lse/research/Mainstream-Media-Representations-of-Jeremy-Corbyn.aspx">Journalistic Representations of Jeremy Corbyn in the British Press (Overview)</a>
 <br>
 
 <br>
