@@ -535,6 +535,17 @@ DAMIEN GREEN
 <br>
 
 <br>
+MICHAEL GOVE
+<br>
+<a href="https://www.theguardian.com/politics/2012/feb/26/schools-crusade-gove-murdoch">The schools crusade that links Michael Gove to Rupert Murdoch</a>
+<br>
+<a href="http://www.independent.co.uk/news/uk/politics/michael-gove-rupert-murdoch-ian-hislop-relationship-times-private-eye-a7356466.html">Michael Gove and Rupert Murdoch's relationship should be investigated, says Private Eye editor Ian Hislop</a>
+<br>
+<a href="http://www.independent.co.uk/news/uk/politics/theresa-may-rupert-murdoch-michael-gove-cabinet-job-tom-watson-labour-deputy-leader-letter-sun-times-a7785631.html">Theresa May asked if Rupert Murdoch told her to give Michael Gove a Cabinet job, in letter from Labour's deputy leader</a>
+<br>
+
+
+<br>
 SUPPORTING LABOUR
 <br>
 <a href="http://skwawkbox.org.linkis.com/l5v64">“IN 2015 I WAS JUBILANT THE TORIES WON. NOW I’M VOTING LABOUR” #GE17</a>
