@@ -567,6 +567,17 @@ DAVID DAVIS
 <a href="http://www.independent.co.uk/news/uk/politics/mps-david-davis-sexist-texts-leaked-diane-abbott-a7576516.html">Labour MPs brand David Davis 'sexist' and 'disgusting' following leaked texts about Diane Abbott</a>
 <br>
 
+<br>
+CHRIS GRAYLING
+<br>
+<a href="https://www.theguardian.com/politics/audio/2010/apr/03/chris-grayling-secret-tape">Listen to the secret recording: Top Tory backs bar on gays</a>
+<br>
+<a href="http://www.independent.co.uk/news/uk/politics/chris-grayling-spends-72000-of-taxpayers-money-to-defend-unlawful-prison-book-ban-9969937.html">Chris Grayling spends £72,000 of taxpayers' money to defend 'unlawful' prison book ban</a>
+<br>
+<a href="http://news.bbc.co.uk/1/hi/uk_politics/8498095.stm">Chris Grayling use of crime statistics 'mislead' public</a>
+<br>
+<a href="http://www.newstatesman.com/politics/staggers/2015/12/chris-grayling-most-incompetent-member-government">Is Chris Grayling the most incompetent member of the government?</a>
+<br>
 
 
 <br>
