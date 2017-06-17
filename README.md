@@ -555,6 +555,18 @@ MICHAEL GOVE
 <br>
 
 <br>
+DAVID DAVIS
+<br>
+<a href="http://www.telegraph.co.uk/news/newstopics/mps-expenses/5309646/MPs-expenses-David-Davies-the-council-estate-lad-who-claimed-5700-for-a-portico.html">MPs' expenses: David Davis, the council estate lad who claimed £5,700 for a portico</a>
+<br>
+<a href="http://www.newstatesman.com/politics/2012/12/david-davies-mp-im-not-bigoted-i-punched-gay-man">David Davies MP: I'm not bigoted, I punched a gay man</a>
+<br>
+<a href="http://www.independent.co.uk/news/uk/politics/mps-david-davis-sexist-texts-leaked-diane-abbott-a7576516.html">Labour MPs brand David Davis 'sexist' and 'disgusting' following leaked texts about Diane Abbott</a>
+<br>
+
+
+
+<br>
 SUPPORTING LABOUR
 <br>
 <a href="http://skwawkbox.org.linkis.com/l5v64">“IN 2015 I WAS JUBILANT THE TORIES WON. NOW I’M VOTING LABOUR” #GE17</a>
