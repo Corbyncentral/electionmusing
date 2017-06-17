@@ -305,6 +305,8 @@ EMPLOYMENT
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/dwp-benefit-cuts-jobcentre-closures-local-travel-costs-further-pcs-a7547351.html">Unemployed will be forced to travel further to sign on as DWP plans to close 78 local Jobcentres</a>
 <br>
+<a href="https://www.theguardian.com/commentisfree/2013/dec/19/zero-hours-contracts-vince-cable-crack-down-exploitation">It's not zero-hours contracts that are the problem, it's the bosses who abuse them</a>
+<br>
 
 <br>
 EDUCATION
