@@ -543,7 +543,10 @@ MICHAEL GOVE
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/theresa-may-rupert-murdoch-michael-gove-cabinet-job-tom-watson-labour-deputy-leader-letter-sun-times-a7785631.html">Theresa May asked if Rupert Murdoch told her to give Michael Gove a Cabinet job, in letter from Labour's deputy leader</a>
 <br>
-
+<a href="http://www.telegraph.co.uk/news/newstopics/mps-expenses/5305434/Michael-Gove-flipped-homes-MPs-expenses.html">Michael Gove 'flipped' homes: MPs' expenses</a>
+<br>
+<a href="http://www.dailyrecord.co.uk/news/politics/michael-gove-could-add-rich-8328091">Michael Gove could add to rich history of Tory sex scandals as embarrassing 'five-in-a-bed romp' details emerge</a>
+<br>
 
 <br>
 SUPPORTING LABOUR
