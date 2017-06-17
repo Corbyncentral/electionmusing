@@ -231,6 +231,8 @@ LAW
 <br>
 <a href="https://www.theguardian.com/law/2017/apr/10/cuts-legal-aid-for-prisoners-unlawful-court-of-appeal">Cuts to legal aid for prisoners ruled unlawful</a>
 <br>
+<a href="https://www.theguardian.com/money/2017/jan/31/employment-tribunal-cases-down-70-since-fees-introduced">Unions blame 70% fall in employment tribunal cases on fees</a>
+<br>
 
 <br>
 FIRE
