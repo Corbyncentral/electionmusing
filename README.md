@@ -229,6 +229,8 @@ LAW
 <br>
 <a href="https://www.theguardian.com/law/2016/oct/11/legal-aid-cuts-two-tier-system-amnesty-international-law-justice">Legal aid cuts creating two-tier justice system, says Amnesty</a>
 <br>
+<a href="https://www.theguardian.com/law/2017/apr/10/cuts-legal-aid-for-prisoners-unlawful-court-of-appeal">Cuts to legal aid for prisoners ruled unlawful</a>
+<br>
 
 <br>
 FIRE
