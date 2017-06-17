@@ -248,6 +248,8 @@ HOUSING
 <br>
 <a href="http://www.huffingtonpost.co.uk/entry/house-building-tories-labour-healey_uk_5910b87ce4b0d5d9049eb915">House Building Under The Tories Drops To Lowest Level Since The 1920s</a>
 <br>
+<a href="https://amp.ibtimes.co.uk/tory-landlords-running-this-country-have-clear-conflict-interest-when-it-comes-keeping-people-1626603">The Tory landlords running this country have a clear conflict of interest when it comes to keeping people safe</a>
+<br>
 
 <br>
 ENVIRONMENT
