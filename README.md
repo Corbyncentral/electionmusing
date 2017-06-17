@@ -529,6 +529,8 @@ DAMIEN GREEN
 <br>
 <a href="http://news.bbc.co.uk/1/hi/uk_politics/7753557.stm">Senior Tory arrested over leaks</a>
 <br>
+<a href="http://www.welfareweekly.com/meet-the-new-work-and-pensions-secretary-damian-green-mp-his-voting-record/">Meet the new Work and Pensions Secretary, Damian Green MP – his voting record</a>
+<br>
 
 <br>
 SUPPORTING LABOUR
