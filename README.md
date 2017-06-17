@@ -390,6 +390,8 @@ INQUIRIES
 <br>
 <a href="http://www.bbc.co.uk/news/10146883">Initial Bloody Sunday inquiry labelled 'whitewash'</a>
 <br>
+<a href="http://www.mirror.co.uk/news/uk-news/chilcot-inquiry-whitewash-fears-spies-7729937">Chilcot inquiry whitewash fears as spies ordered to vet the report</a>
+<br>
 <a href="https://www.theguardian.com/commentisfree/2013/jun/25/politicians-inquiries-lawrence-get-out-jail">Politicians who demand inquiries should be taken out and shot</a>
 <br>
 <a href="https://www.theguardian.com/uk-news/2017/jun/15/theresa-may-announces-public-inquiry-into-grenfell-tower-fire">Theresa May announces public inquiry into Grenfell Tower fire</a>
