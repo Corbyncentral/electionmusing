@@ -394,6 +394,8 @@ CORRUPTION ALLEGATIONS
 <br>
 NHS
 <br>
+<a href="http://www.mirror.co.uk/news/politics/nhs-paying-private-firms-millions-10637419.amp">NHS paying private firms millions to beat bed blocking after social care cuts</a>
+<br>
 <a href="http://theleveller.org/2017/02/may-nhs-no-facts/">Alternative facts? On the NHS, May wants to give NO facts</a>
 <br>
 <a href="http://nyebevannews.co.uk/health-foundation-half-the-money-tories-promised-in-2015-left-the-nhs-for-private-companies/">Health foundation:Half the money promised in 2015 left the NHS for private companies</a>
