@@ -398,6 +398,8 @@ INQUIRIES
 <br>
 <a href="https://www.theguardian.com/uk-news/2017/jun/15/theresa-may-announces-public-inquiry-into-grenfell-tower-fire">Theresa May announces public inquiry into Grenfell Tower fire</a>
 <br>
+<a href="http://www.independent.co.uk/news/uk/home-news/grenfell-fire-inquest-inquiry-theresa-may-faces-demands-whitewash-fears-latest-news-a7793866.html">Grenfell Tower fire: Thousands demand Theresa May hold inquest instead of inquiry amid 'whitewash' fears</a>
+<br>
 
 <br>
 CONSERVATIVES AND THE PRESS
