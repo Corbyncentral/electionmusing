@@ -493,6 +493,12 @@ JEREMY HUNT
 <br>
 <a href="http://www.mirror.co.uk/news/politics/jeremy-hunt-sparks-fury-giving-10631267">Jeremy Hunt sparks fury by giving sympathy instead of pay rise</a>
 <br>
+<a href="https://www.theguardian.com/politics/2012/jun/11/jeremy-hunt-urged-resign-leveson">Jeremy Hunt should have resigned over BSkyB bid, says Lord Oakeshott</a>
+<br>
+<a href="http://www.liverpoolecho.co.uk/news/liverpool-news/fury-sports-secretary-jeremy-hunt-3405374">Fury as sports secretary Jeremy Hunt links Hillsborough with hooliganism</a>
+<br>
+<a href="http://www.telegraph.co.uk/news/politics/9232715/Jeremy-Hunt-avoided-100000-tax-bill-in-deal-just-days-before-rate-rise.html">Jeremy Hunt avoided £100,000 tax bill in deal just days before rate rise</a>
+<br>
 
 <br>
 BORIS JOHNSON
