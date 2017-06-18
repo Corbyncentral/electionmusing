@@ -639,6 +639,15 @@ LIZ TRUSS
 <a href="https://www.theguardian.com/commentisfree/2016/jul/25/row-over-liz-truss-sexism-gender-law-lord-chancellor">This row over Liz Truss as lord chancellor isn’t about gender. It's about the law.</a>
 <br>
 
+<br>
+SAJID JAVID
+<br>
+<a href="https://www.theguardian.com/world/2017/feb/07/official-advised-uk-minister-to-suspend-saudi-weapons-exports-court-hears">UK minister ignored official warning over Saudi weapons exports, court hears</a>
+<br>
+<a href="http://www.newstatesman.com/politics/uk/2017/06/rocky-balboa-jeremy-corbyn-might-not-have-won-he-sure-went-distance">Sajid Javid's father would never have made it into Cameron's Britain</a>
+<br>
+
+
 
 
 
