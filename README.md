@@ -130,7 +130,8 @@ DUP
 <br>
 <a href="https://www.politicshome.com/news/uk/political-parties/conservative-party/theresa-may/news/86745/nearly-half-voters-opposed-deal">Nearly half of voters opposed to deal between Theresa May and DUP - poll</a>
 <br>
-
+<a href="https://www.thecanary.co/2017/06/13/theresa-may-hoping-nobody-see-northern-ireland-document-written-cabinet-minister/">Theresa May was hoping nobody would see this Northern Ireland document written by her cabinet minister</a>
+<br>
 
 <br>
 THERESA MAY
