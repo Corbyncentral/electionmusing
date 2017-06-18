@@ -306,6 +306,8 @@ ENVIRONMENT
 <br>
 <a href="http://www.independent.co.uk/environment/climate-change-department-killed-off-by-theresa-may-in-plain-stupid-and-deeply-worrying-move-a7137166.html">Climate change department closed by Theresa May in 'plain stupid' and 'deeply worrying' move</a>
 <br>
+<a href="https://amp.theguardian.com/environment/blog/2015/feb/17/privatisation-uk-woodlands-happening-by-backdoor">Privatisation of UK woodlands is happening by the backdoor</a>
+<br>
 
 <br>
 IMMIGRATION
