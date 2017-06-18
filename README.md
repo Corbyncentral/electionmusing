@@ -572,6 +572,18 @@ PHILIP HAMMOND
 <br>
 
 <br>
+LIAM FOX
+<br>
+<a href="http://www.bbc.co.uk/news/uk-politics-15300751">Liam Fox quits as defence secretary</a>
+<br>
+<a href="http://www.telegraph.co.uk/news/newstopics/mps-expenses/9619022/Expenses-scandal-27-MPs-let-one-home-and-claim-for-another.html">Expenses scandal: 27 MPs let one home and claim for another</a>
+<br>
+<a href="http://www.telegraph.co.uk/news/newstopics/mps-expenses/7450738/MPs-expenses-Liam-Fox-becomes-highest-shadow-cabinet-repayer.html">MPs’ expenses: Liam Fox becomes highest shadow cabinet repayer</a>
+<br>
+<a href="http://www.telegraph.co.uk/news/newstopics/mps-expenses/conservative-mps-expenses/8817286/Defence-Secretary-Liam-Fox-used-expenses-to-pay-his-best-man-Adam-Werritty.html">Defence Secretary Liam Fox used expenses to pay his best man Adam Werritty</a>
+<br>
+
+<br>
 DAMIEN GREEN
 <br>
 <a href="http://news.bbc.co.uk/1/hi/uk_politics/7753557.stm">Senior Tory arrested over leaks</a>
