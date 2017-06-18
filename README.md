@@ -629,6 +629,18 @@ CHRIS GRAYLING
 <a href="http://www.newstatesman.com/politics/staggers/2015/12/chris-grayling-most-incompetent-member-government">Is Chris Grayling the most incompetent member of the government?</a>
 <br>
 
+<br>
+LIZ TRUSS
+<br>
+<a href="https://www.theguardian.com/environment/georgemonbiot/2015/nov/12/toothless-environment-agency-is-allowing-the-living-world-to-be-wrecked-with-impunity">Toothless Environment Agency is allowing the living world to be wrecked with impunity</a>
+<br>
+<a href="https://www.lawgazette.co.uk/law/unrepentant-mail-demands-public-hearings-for-judges-as-brexit-row-escalates/5058689.article">Unrepentant Mail demands ‘public hearings’ for judges as Brexit row escalates</a>
+<br>
+<a href="https://www.theguardian.com/commentisfree/2016/jul/25/row-over-liz-truss-sexism-gender-law-lord-chancellor">This row over Liz Truss as lord chancellor isn’t about gender. It's about the law.</a>
+<br>
+
+
+
 
 <br>
 SUPPORTING LABOUR
