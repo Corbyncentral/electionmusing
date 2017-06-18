@@ -26,6 +26,8 @@ NEGATIVE TACTICS
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/conservative-manifesto-general-election-2017-voter-id-laws-racist-voters-poll-latest-a7742666.html">Conservatives will force people to use photo ID to vote, stopping millions from taking part in future elections</a>
 <br>
+<a href="http://www.independent.co.uk/news/uk/home-news/conservative-changes-to-voter-registration-leave-800000-off-election-rolls-a6845796.html?amp">Conservative changes to voter registration leaves 800,000 off election rolls</a>
+<br>
 
 <br>
 ISRAEL
