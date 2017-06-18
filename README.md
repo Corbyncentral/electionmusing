@@ -459,6 +459,8 @@ CORRUPTION ALLEGATIONS
 <br>
 NHS
 <br>
+<a href="http://www.independent.co.uk/news/uk/politics/nhs-privatisation-charges-professionals-in-house-agency-a7426966.html?amp">Government quietly privatises the NHS's in-house agency staff provider</a>
+<br>
 <a href="http://www.mirror.co.uk/news/politics/nhs-paying-private-firms-millions-10637419.amp">NHS paying private firms millions to beat bed blocking after social care cuts</a>
 <br>
 <a href="http://theleveller.org/2017/02/may-nhs-no-facts/">Alternative facts? On the NHS, May wants to give NO facts</a>
