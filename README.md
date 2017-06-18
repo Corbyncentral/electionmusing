@@ -63,6 +63,8 @@ JEREMY CORBYN
 <br>
 <a href="https://www.theguardian.com/commentisfree/2016/sep/16/jeremy-corbyn-leadership-david-cameron-libya-labour">Jeremy Corbyn has been on the right side of history for 30 years. That’s real leadership</a>
 <br>
+<a href="https://www.theguardian.com/music/2017/jun/16/jeremy-corbyn-pyramid-stage-glastonbury-festival-2017">Jeremy Corbyn to appear on Pyramid stage at Glastonbury festival 2017</a>
+<br>
 <a href="https://www.opendemocracy.net/luke-davies/re-examining-corbyns-dangerous-friendships">We need to re-examine Corbyn's so-called 'dangerous friendships'</a>
 <br>
 <a href="http://www.thelondoneconomic.com/tle-pick/think-jeremy-corbyn-is-a-loser-oh-dear-youve-been-brainwashed/18/08/">Think Jeremy Corbyn is a loser, oh dear, you've been brainwashed</a>
