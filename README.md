@@ -691,6 +691,18 @@ SAJID JAVID
 <br>
 
 
+<br>
+MISCELLANEOUS 
+<br>
+<a href="https://www.theodysseyonline.com/common-logical-fallacies-politics">The Most Common Logical Fallacies In Politics</a>
+<br>
+<a href="https://yourlogicalfallacyis.com/slippery-slope">Slippery Slope logical fallacy</a>
+<br>
+<a href="http://www.britishpollingcouncil.org/a-journalists-guide-to-opinion-polls/">
+Journalist's Guide To Opinion Polls</a>
+<br>
+<a href="https://skwawkbox.org/2017/03/19/is-this-the-smoking-gun-of-yougovs-anti-corbyn-bias/">IS THIS THE ‘SMOKING GUN’ OF YOUGOV’S ANTI-CORBYN BIAS?</a>
+<br>
 
 
 
