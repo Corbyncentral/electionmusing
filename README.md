@@ -116,6 +116,9 @@ IRA
 <br>
 <a href="http://anotherangryvoice.blogspot.co.uk/2017/04/the-absurd-ira-hypocrisyof-right-wing.html">The searing hypocrisy of the right-wing "Corbyn talked to the IRA" brigade</a>
 <br>
+<a href="http://www.telegraph.co.uk/news/uknews/terrorism-in-the-uk/11062418/Thatcher-granted-secret-pardon-to-IRA-terrorist.html">Thatcher granted secret pardon to IRA terrorist</a>
+<br>
+
 
 <br>
 DUP
