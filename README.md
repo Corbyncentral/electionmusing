@@ -537,6 +537,10 @@ BREXIT
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/brexit-talks-opening-position-papers-government-yet-to-send-submit-latest-news-a7792531.html">Brexit talks: Government yet to submit opening positions despite EU negotiations being days away</a>
 <br>
+<a href="https://www.theguardian.com/commentisfree/2017/apr/01/great-repeal-bill-henry-viii-britain-eu-government">The great repeal bill will give the Tories a free hand. And we can only watch</a>
+<br>
+<a href="http://www.independent.co.uk/voices/brexit-great-repeal-bill-eu-rights-and-protections-bill-you-should-be-worried-a7705286.html">Don't worry about Brexit – worry about the Great Repeal Bill that comes after it</a>
+<br>
 
 <br>
 PANAMA PAPERS SCANDAL
