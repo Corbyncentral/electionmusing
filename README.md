@@ -310,6 +310,8 @@ ENVIRONMENT
 <br>
 <a href="http://www.telegraph.co.uk/news/earth/energy/fracking/12054726/MPs-clear-the-way-for-fracking-to-start-under-National-Parks.html">MPs clear the way for fracking to start under National Park</a>
 <br>
+<a href="http://www.independent.co.uk/news/uk/politics/george-osborne-reveals-50-tax-break-for-fracking-firms-8718711.html">George Osborne reveals 50% tax break for fracking firms</a>
+<br>
 <a href="https://www.theguardian.com/environment/2017/apr/25/government-delay-air-pollution-plan-due-to-election-dishonest">Tories 'on very dodgy ground' over delay of air pollution plan, say experts</a>
 <br>
 <a href="https://www.theguardian.com/environment/2015/jul/24/the-9-green-policies-killed-off-by-tory-government">The nine green policies killed off by the Tory government</a>
