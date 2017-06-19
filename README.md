@@ -417,6 +417,9 @@ NASTY PARTY
 <br>
 <a href="https://www.thesun.co.uk/archives/politics/766019/sex-drugs-booze-blackmail-bullying-suicide-scandal-which-is-rocking-tories/">Sex, drugs, booze, blackmail, bullying & suicide scandal which is rocking Tories</a>
 <br>
+<a href="http://www.telegraph.co.uk/comment/11893698/Hinkley-a-truly-major-national-scandal.html">Hinkley: a truly major national scandal</a>
+<br>
+
 
 <br>
 ORGREAVE
