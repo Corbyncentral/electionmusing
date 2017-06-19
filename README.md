@@ -316,6 +316,8 @@ ENVIRONMENT
 <br>
 <a href="https://amp.theguardian.com/environment/blog/2015/feb/17/privatisation-uk-woodlands-happening-by-backdoor">Privatisation of UK woodlands is happening by the backdoor</a>
 <br>
+<a href="https://www.theguardian.com/environment/2016/jan/02/tory-cuts-wrecking-uk-flood-defences">Revealed: how Tory cuts are wrecking UK flood defences</a>
+<br>
 
 <br>
 IMMIGRATION
