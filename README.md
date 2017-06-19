@@ -558,6 +558,11 @@ ECONOMY
 <br>
 <a href="https://www.theguardian.com/society/patrick-butler-cuts-blog/2013/jan/16/welfare-reform-bedroom-tax-policy-that-has-no-logic">Welfare reform: the bedroom tax, 'a policy that has no logic'</a>
 <br>
+<a href="https://www.theguardian.com/commentisfree/2017/apr/27/labour-tory-welfare-spending-universal-credit-housing">They say Labour is financially inept. Yet just look at Tory welfare spending</a>
+<br>
+<a href="http://anotherangryvoice.blogspot.co.uk/2017/04/30-things-you-should-know-about-tory.html">30 things you should know about the Tory record</a>
+<br>
+
 
 <br>
 MICHAEL FALLON
