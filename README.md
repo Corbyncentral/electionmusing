@@ -552,6 +552,12 @@ ECONOMY
 <br>
 <a href="https://politicalscrapbook.net/2017/04/foodbank-use-growing-under-theresa-may/">Foodbank use growing under Theresa May</a>
 <br>
+<a href="https://www.theguardian.com/society/2013/sep/11/bedroom-tax-should-be-axed-says-un-investigator">'Shocking' bedroom tax should be axed, says UN investigator</a>
+<br>
+<a href="http://blog.shelter.org.uk/2016/01/the-government-still-think-that-the-bedroom-tax-is-fair-play/">The government still think that the Bedroom Tax is fair play</a>
+<br>
+<a href="https://www.theguardian.com/society/patrick-butler-cuts-blog/2013/jan/16/welfare-reform-bedroom-tax-policy-that-has-no-logic">Welfare reform: the bedroom tax, 'a policy that has no logic'</a>
+<br>
 
 <br>
 MICHAEL FALLON
