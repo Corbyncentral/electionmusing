@@ -92,7 +92,8 @@ TERROR
 <br>
 <a href="http://www.independent.co.uk/news/uk/home-news/fbi-warned-mi5-january-manchester-attack-bomber-salman-abedi-manchester-arena-a7760756.html">FBI 'warned MI5 in January that Salman Abedi was planning terror attack in UK'</a>
 <br>
-
+<a href="http://www.independent.co.uk/news/uk/home-news/finsbury-park-attack-far-right-extremist-rise-year-statistics-prevent-terrorism-scheme-referrals-a7798231.html">Number of far-right extremists flagged to Government terror unit soars 30% in a year</a>
+<br>
 
 
 <br>
