@@ -658,6 +658,19 @@ LIAM FOX
 <br>
 
 <br>
+AMBER RUDD
+<br>
+<a href="http://www.bbc.co.uk/news/uk-politics-37432666">Leak reveals Amber Rudd's links to offshore investment funds</a>
+<br>
+<a href="http://www.theargus.co.uk/news/10391147.Sussex_MP_blasted_for_drugs_comment/">Sussex MP blasted for drugs comment</a>
+<br>
+<a href="http://www.theecologist.org/News/news_analysis/2986190/leaked_letter_rudd_admits_25_green_energy_undershoot_misled_parliament.html">Leaked letter: Rudd admits 25% green energy undershoot, misled Parliament</a>
+<br>
+<a href="http://www.independent.co.uk/news/uk/home-news/amber-rudd-saudi-arabia-speech-shut-down-claims-nicholas-wilson-a7774126.html">Amber Rudd accused of 'shutting down' rival's speech on arms sales to Saudi Arabia</a>
+<br>
+
+
+<br>
 DAMIEN GREEN
 <br>
 <a href="http://news.bbc.co.uk/1/hi/uk_politics/7753557.stm">Senior Tory arrested over leaks</a>
