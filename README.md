@@ -31,20 +31,6 @@ NEGATIVE TACTICS
 <a href="https://www.theguardian.com/politics/2017/apr/21/britons-abroad-denied-uk-general-election-vote-tories">Britons abroad for longer than 15 years denied vote in general election</a>
 <br>
 
-<br>
-ISRAEL
-<br>
-<a href="http://www.huffingtonpost.co.uk/entry/israeli-diplomat-shai-masot-tried-to-set-up-groups-to-undermine-crazy-corbyn-and-weirdo-supporters_uk_587491a6e4b0a1ff7042f0c2">Israeli Diplomat, Shai Masot, Tried To Set Up Groups To Undermine ‘Crazy’ Corbyn And ‘Weirdo’ Supporters</a>
-<br>
-<a href="https://www.theguardian.com/world/2017/jan/08/israeli-diplomat-shai-masot-plotted-against-mps-set-up-political-groups-labour">Israeli diplomat who plotted against MPs also set up political groups</a>
-<br>
-<a href="https://electronicintifada.net/content/how-israel-lobby-manufactured-uk-labour-partys-anti-semitism-crisis/16481">How Israel lobby manufactured UK Labour Party’s anti-Semitism crisis</a>
-<br>
-<a href="http://www.middleeasteye.net/columns/if-russia-had-plotted-take-down-british-minister-all-hell-would-have-broken-loose-1311627112">Boris Johnson says matter of Israel embassy plot is 'closed'. He's wrong - it's a scandal</a>
-<br>
-<a href="https://electronicintifada.net/blogs/asa-winstanley/labours-israel-lobby-plans-relaunch-campaign-against-corbyn">
-Labour’s Israel lobby plans to relaunch campaign against Corbyn</a>
-<br>
 
 <br>
 BBC
@@ -574,6 +560,21 @@ ECONOMY
 <a href="https://www.theguardian.com/commentisfree/2017/apr/27/labour-tory-welfare-spending-universal-credit-housing">They say Labour is financially inept. Yet just look at Tory welfare spending</a>
 <br>
 <a href="http://anotherangryvoice.blogspot.co.uk/2017/04/30-things-you-should-know-about-tory.html">30 things you should know about the Tory record</a>
+<br>
+
+<br>
+ISRAEL
+<br>
+<a href="http://www.huffingtonpost.co.uk/entry/israeli-diplomat-shai-masot-tried-to-set-up-groups-to-undermine-crazy-corbyn-and-weirdo-supporters_uk_587491a6e4b0a1ff7042f0c2">Israeli Diplomat, Shai Masot, Tried To Set Up Groups To Undermine ‘Crazy’ Corbyn And ‘Weirdo’ Supporters</a>
+<br>
+<a href="https://www.theguardian.com/world/2017/jan/08/israeli-diplomat-shai-masot-plotted-against-mps-set-up-political-groups-labour">Israeli diplomat who plotted against MPs also set up political groups</a>
+<br>
+<a href="https://electronicintifada.net/content/how-israel-lobby-manufactured-uk-labour-partys-anti-semitism-crisis/16481">How Israel lobby manufactured UK Labour Party’s anti-Semitism crisis</a>
+<br>
+<a href="http://www.middleeasteye.net/columns/if-russia-had-plotted-take-down-british-minister-all-hell-would-have-broken-loose-1311627112">Boris Johnson says matter of Israel embassy plot is 'closed'. He's wrong - it's a scandal</a>
+<br>
+<a href="https://electronicintifada.net/blogs/asa-winstanley/labours-israel-lobby-plans-relaunch-campaign-against-corbyn">
+Labour’s Israel lobby plans to relaunch campaign against Corbyn</a>
 <br>
 
 
