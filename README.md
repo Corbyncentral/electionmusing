@@ -545,6 +545,8 @@ BREXIT
 <br>
 <a href="http://www.independent.co.uk/voices/brexit-great-repeal-bill-eu-rights-and-protections-bill-you-should-be-worried-a7705286.html">Don't worry about Brexit – worry about the Great Repeal Bill that comes after it</a>
 <br>
+<a href="http://www.independent.co.uk/news/business/news/bank-of-england-mark-carney-boris-johnson-brexit-britain-worse-off-a7798551.html">Brexit will make Britain worse off, Bank of England Governor Mark Carney says</a>
+<br>
 
 <br>
 PANAMA PAPERS SCANDAL
