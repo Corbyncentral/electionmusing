@@ -109,6 +109,8 @@ ARMED FORCES
 <br>
 <a href="https://www.theguardian.com/uk-news/2016/nov/21/royal-navy-risks-having-pathetically-low-total-of-ships-warn-mps">Royal Navy risks having 'pathetically low total' of ships</a>
 <br>
+<a href="http://www.huffingtonpost.co.uk/john-wight/michael-fallon_b_16287142.html">Britain’s Defence Secretary Michael Fallon Is A Nutcase</a>
+<br>
 
 <br>
 IRA
