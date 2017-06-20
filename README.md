@@ -103,6 +103,8 @@ ARMED FORCES
 <br>
 <a href="http://www.telegraph.co.uk/news/2016/12/27/forces-braced-cuts-defence-cash-squeeze/">Forces braced for more cuts in defence cash squeeze</a>
 <br>
+<a href="http://www.mirror.co.uk/news/uk-news/9000-ex-service-personnel-homeless-after-2071049">9,000 ex- service personnel homeless after leaving the military</a>
+<br>
 
 <br>
 IRA
