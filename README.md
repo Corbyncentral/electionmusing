@@ -307,6 +307,8 @@ HOUSING
 <br>
 <a href="https://amp.ibtimes.co.uk/tory-landlords-running-this-country-have-clear-conflict-interest-when-it-comes-keeping-people-1626603">The Tory landlords running this country have a clear conflict of interest when it comes to keeping people safe</a>
 <br>
+<a href="http://www.independent.co.uk/news/uk/home-news/social-housing-government-funded-properties-rent-falls-97-per-cent-study-homes-communities-agency-a7799116.html">Number of government-funded social homes falls by 97% since Conservatives took office</a>
+<br>
 
 <br>
 ENVIRONMENT
