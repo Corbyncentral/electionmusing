@@ -522,6 +522,8 @@ NHS
 <br>
 <a href="http://evolvepolitics.com/plans-reveal-another-hospital-sold-off-tories/amp/">Plans reveal ANOTHER hospital to be sold off under the Tories in devastating blow to our emergency services.</a>
 <br>
+<a href="https://amp.theguardian.com/society/2015/apr/25/far-more-nhs-contracts-going-to-private-firms-than-ministers-admit-privatisation">Far more NHS contracts going to private firms than ministers admit, figures show</a>
+<br>
 
 <br>
 UN
