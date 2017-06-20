@@ -142,6 +142,8 @@ DUP
 <br>
 <a href="https://www.thecanary.co/2017/06/13/theresa-may-hoping-nobody-see-northern-ireland-document-written-cabinet-minister/">Theresa May was hoping nobody would see this Northern Ireland document written by her cabinet minister</a>
 <br>
+<a href="http://uk.businessinsider.com/may-government-court-challenge-pact-dup-good-friday-agreement-2017-6?r=US&IR=T">Theresa May's government could be taken to court over its plan to form a pact with the DUP</a>
+<br>
 
 <br>
 THERESA MAY
