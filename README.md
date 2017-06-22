@@ -507,6 +507,8 @@ CORRUPTION ALLEGATIONS
 <br>
 <a href="https://www.thecanary.co/2017/06/20/eve-queens-speech-new-election-expenses-scandal-x/">On the eve of the Queen’s speech, a new election expenses scandal breaks. This one could sink Theresa May.</a>
 <br>
+<a href="https://www.channel4.com/news/revealed-inside-the-secretive-tory-election-call-centre">Revealed: Inside the secretive Tory election call centre</a>
+<br>
 
 <br>
 NHS
