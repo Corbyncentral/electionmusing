@@ -298,6 +298,8 @@ FIRE
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/government-criticised-over-quietly-abandoning-requirement-for-new-schools-to-install-fire-sprinklers-a7219276.html">Government criticised over quietly abandoning requirement for new schools to install fire sprinkler systems</a>
 <br>
+<a href="https://politicalscrapbook.net/2017/06/fire-station-shut-by-boris-johnson-to-be-turned-into-luxury-flats-by-company-owned-run-tory-donor/amp/">FIRE STATION SHUT BY BORIS JOHNSON TO BE TURNED INTO LUXURY FLATS BY COMPANY RUN BY TORY DONOR</a>
+<br>
 
 <br>
 HOUSING
