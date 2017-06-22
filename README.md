@@ -146,6 +146,8 @@ DUP
 <br>
 <a href="http://uk.businessinsider.com/may-government-court-challenge-pact-dup-good-friday-agreement-2017-6?r=US&IR=T">Theresa May's government could be taken to court over its plan to form a pact with the DUP</a>
 <br>
+<a href="https://skwawkbox.org/2017/06/22/breaking-ireland-will-block-brexit-deal-if-maydup-deal-goes-ahead/amp/">Breaking – Ireland will block #Brexit deal if #MayDUP deal goes ahead</a>
+<br>
 
 <br>
 THERESA MAY
