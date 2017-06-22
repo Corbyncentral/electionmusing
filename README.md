@@ -442,6 +442,8 @@ NASTY PARTY
 <br>
 <a href="http://www.telegraph.co.uk/comment/11893698/Hinkley-a-truly-major-national-scandal.html">Hinkley: a truly major national scandal</a>
 <br>
+<a href="http://www.independent.co.uk/news/uk/politics/grenfell-tower-fire-latest-conservative-politician-offensive-tweet-uproar-theresa-may-hitler-a7802571.html?amp">Grenfell Tower fire: Tory politician defends motivations behind 'offensive' Hitler tweet</a>
+<br>
 
 
 <br>
