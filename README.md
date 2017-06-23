@@ -496,6 +496,8 @@ CORRUPTION ALLEGATIONS
 <br>
 <a href="https://sleazeexpo.wordpress.com/">Voter count model election rigging</a>
 <br>
+<a href="https://sleazeexpo.files.wordpress.com/2017/04/crux-votegate-quix-test-1-matrix-120-tory-expense-fraud-seats-which-police-are-investigating-dl-excel-sheet-1-1-april-2017-0345.xls">21 seats under investigation</a>
+<br>
 <a href="https://www.opendemocracy.net/uk/joel-benjamin/why-hsbc-s-indirect-donations-to-conservatives-and-buzzfeed-s-dismissal-as-conspira">Why HSBC’s indirect donations to the Conservatives (and Buzzfeed’s dismissal as a 'conspiracy') matters to our democracy</a>
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/secrecy-over-public-spending-exposed-taxpayers-money-government-corruption-where-is-taxpayers-money-a7327186.html">‘Secrecy’ over public spending exposed by Transparency International report</a>
