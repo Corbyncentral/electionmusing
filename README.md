@@ -590,6 +590,8 @@ BREXIT
 <br>
 <a href="http://voxpoliticalonline.com/2016/05/21/priti-patel-admits-leave-campaign-agenda-to-reduce-workers-rights-tuc/">Priti Patel admits Leave campaign agenda to reduce workers’ rights – TUC</a>
 <br>
+<a href="http://www.independent.co.uk/news/uk/home-news/brexit-boris-johnson-michael-gove-nigel-farage-poll-hated-british-public-char-yougov-a7805466.html">Brexit's architects are hated by British public, chart shows</a>
+<br>
 
 <br>
 PANAMA PAPERS SCANDAL
