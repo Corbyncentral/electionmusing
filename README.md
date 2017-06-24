@@ -602,6 +602,11 @@ PANAMA PAPERS SCANDAL
 <br>
 <a href="http://www.telegraph.co.uk/news/2016/05/09/panama-papers-full-database-revealed/">Panama Papers database dump reveals 200,000 secret offshore account details</a>
 <br>
+<a href="https://www.vice.com/en_uk/article/8gkyv3/why-you-should-care-about-panama-papers-mossack-fonseca">Here's Why You Should Give a Sh*t About the Panama Papers</a>
+<br>
+<a href="https://panamapapers.icij.org">The International Consortium of Investigative Journalists: The Panama Papers</a>
+<br>
+
 
 <br>
 ECONOMY
