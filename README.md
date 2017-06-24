@@ -646,7 +646,8 @@ ISRAEL
 <a href="https://electronicintifada.net/blogs/asa-winstanley/labours-israel-lobby-plans-relaunch-campaign-against-corbyn">
 Labour’s Israel lobby plans to relaunch campaign against Corbyn</a>
 <br>
-
+<a href="https://electronicintifada.net/blogs/david-cronin/new-british-minister-michael-gove-gets-funding-israel-lobby">New British minister Michael Gove gets funding from Israel lobby</a>
+<br>
 
 <br>
 MICHAEL FALLON
