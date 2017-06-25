@@ -816,7 +816,8 @@ Journalist's Guide To Opinion Polls</a>
 <br>
 <a href="https://skwawkbox.org/2017/03/19/is-this-the-smoking-gun-of-yougovs-anti-corbyn-bias/">IS THIS THE ‘SMOKING GUN’ OF YOUGOV’S ANTI-CORBYN BIAS?</a>
 <br>
-
+<a href="http://guerillawire.org/policing/the-nauseating-hypocrisy-of-may-praising-our-police-fire-and-nhs-services-after-every-tradegy/#.WU_Ut-LsiuY.twitter">The nauseating hypocrisy of May praising our police, fire and NHS services after every tragedy</a>
+<br>
 
 
 <br>
