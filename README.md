@@ -75,7 +75,8 @@ JEREMY CORBYN
 <br>
 <a href="http://www.lse.ac.uk/media@lse/research/pdf/JeremyCorbyn/Cobyn-Report-FINAL.pdf">Journalistic Representations of Jeremy Corbyn in the British Press</a>
 <br>
-
+<a href="https://www.thecanary.co/2017/06/25/74257/">Tory MPs lose their shit at Corbyn’s popularity. And blame the BBC for Glastonbury</a>
+<br>
 
 <br>
 TERROR
