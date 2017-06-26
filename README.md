@@ -563,6 +563,8 @@ NHS
 <br>
 <a href="http://www.birminghammail.co.uk/news/midlands-news/theresa-backtracks-pledge-recruit-10000-13216129.amp">Theresa May backtracks on pledge to recruit 10,000 more mental health staff</a>
 <br>
+<a href="http://www.independent.co.uk/news/health/nhs-latest-senior-doctors-hospitals-underfunding-accelerate-privatisation-agenda-conservative-a7808591.html?amp">Senior doctors accuse Government of deliberately underfunding NHS to accelerate privatisation plans</a>
+<br>
 
 <br>
 UN
