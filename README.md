@@ -151,6 +151,8 @@ DUP
 <br>
 <a href="https://skwawkbox.org/2017/06/22/breaking-ireland-will-block-brexit-deal-if-maydup-deal-goes-ahead/amp/">Breaking – Ireland will block #Brexit deal if #MayDUP deal goes ahead</a>
 <br>
+<a href="https://amp.theguardian.com/commentisfree/2017/jun/26/shoddy-dup-deal-cost-theresa-may-more-1bn">This shoddy DUP deal will ultimately cost Theresa May far more than £1bn</a>
+<br>
 
 <br>
 THERESA MAY
