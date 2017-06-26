@@ -617,7 +617,8 @@ PANAMA PAPERS SCANDAL
 <br>
 <a href="https://panamapapers.icij.org">The International Consortium of Investigative Journalists: The Panama Papers</a>
 <br>
-
+<a href="https://amp.theguardian.com/world/2017/jun/01/super-rich-evade-on-average-nearly-third-of-their-due-tax">Super-rich evade on average nearly third of their due tax</a>
+<br>
 
 <br>
 ECONOMY
