@@ -821,7 +821,8 @@ Journalist's Guide To Opinion Polls</a>
 <br>
 <a href="http://guerillawire.org/policing/the-nauseating-hypocrisy-of-may-praising-our-police-fire-and-nhs-services-after-every-tradegy/#.WU_Ut-LsiuY.twitter">The nauseating hypocrisy of May praising our police, fire and NHS services after every tragedy</a>
 <br>
-
+<a href="https://amp.theguardian.com/politics/2017/jun/20/deadlier-than-terrorism-right-fatal-obsession-red-tape-deregulation-grenfell-tower">‘Deadlier than terrorism’ – the right’s fatal obsession with red tape</a>
+<br>
 
 <br>
 SUPPORTING LABOUR
