@@ -17,7 +17,7 @@ NEGATIVE TACTICS
 <br>
 <a href="https://politicalscrapbook.net/2017/06/bitter-tory-councillor-wants-to-ban-students-from-voting-in-university-seats/">BITTER TORY COUNCILLOR WANTS TO BAN STUDENTS FROM VOTING IN UNIVERSITY SEATS</a> <a href="https://archive.is/8LTDz">(archive)</a>
 <br>
-<a href="http://www.mirror.co.uk/news/politics/no-show-tory-candidates-pulling-10570816">No Show Tory candidates are pulling out of hustings because they're too chicken to face the public</a>
+<a href="http://www.mirror.co.uk/news/politics/no-show-tory-candidates-pulling-10570816">No Show Tory candidates are pulling out of hustings because they're too chicken to face the public</a> <a href="https://archive.is/jcvKv">(archive)</a>
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/philip-davies-filibuster-domestic-violence-a7479266.html">Here are some of the bills Tory MP Philip Davies has filibustered</a>
 <br>
