@@ -23,7 +23,7 @@ NEGATIVE TACTICS
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/conservatives-voter-registration-social-media-not-use-encourage-facebook-twitter-election-2017-a7756736.html">Conservatives did not once use social media to encourage voter registration, study finds</a> <a href="https://web.archive.org/web/20170627235320/http://www.independent.co.uk/news/uk/politics/conservatives-voter-registration-social-media-not-use-encourage-facebook-twitter-election-2017-a7756736.html">(archive)</a>
 <br>
-<a href="http://www.independent.co.uk/news/uk/politics/conservative-manifesto-general-election-2017-voter-id-laws-racist-voters-poll-latest-a7742666.html">Conservatives will force people to use photo ID to vote, stopping millions from taking part in future elections</a>
+<a href="http://www.independent.co.uk/news/uk/politics/conservative-manifesto-general-election-2017-voter-id-laws-racist-voters-poll-latest-a7742666.html">Conservatives will force people to use photo ID to vote, stopping millions from taking part in future elections</a> <a href="https://web.archive.org/web/20170627235744/http://www.independent.co.uk/news/uk/politics/conservative-manifesto-general-election-2017-voter-id-laws-racist-voters-poll-latest-a7742666.html">(archive)</a>
 <br>
 <a href="http://www.independent.co.uk/news/uk/home-news/conservative-changes-to-voter-registration-leave-800000-off-election-rolls-a6845796.html?amp">Conservative changes to voter registration leaves 800,000 off election rolls</a>
 <br>
