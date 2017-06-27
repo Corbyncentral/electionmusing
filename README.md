@@ -9,7 +9,7 @@ NEGATIVE TACTICS
 <br>
 <a href="http://metro.co.uk/2017/06/10/tories-spent-1200000-on-negative-anti-jeremy-corbyn-social-media-adverts-6699774/">Conservatives spent £1.2m on negative Jeremy Corbyn social media adverts</a> <a href="https://archive.is/ZeTRw">(archive)</a>
 <br>
-<a href="https://insidecroydon.com/2017/06/07/barwells-bogus-dear-neighbour-letters-use-an-old-cons-trick/">Barwells bogus dear neighbour letters use an old cons trick</a>
+<a href="https://insidecroydon.com/2017/06/07/barwells-bogus-dear-neighbour-letters-use-an-old-cons-trick/">Barwells bogus dear neighbour letters use an old cons trick</a> <a href="https://archive.is/SGLBb">(archive)</a>
 <br>
 <a href="https://www.theguardian.com/politics/2017/may/27/conservatives-facebook-dark-ads-data-protection-election">Revealed: Tory ‘dark’ ads targeted voters’ Facebook feeds in Welsh marginal seat</a>
 <br>
