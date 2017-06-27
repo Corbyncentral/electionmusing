@@ -622,6 +622,8 @@ PANAMA PAPERS AND TAXATION
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/these-are-the-british-meps-who-voted-against-plans-to-crack-down-on-corporate-tax-evasion-a6982271.html?amp">These are the British MEPs who voted against plans to crack down on corporate tax dodging</a>
 <br>
+<a href="https://www.bna.com/uk-becoming-prime-n57982083607/?amp=true">U.K. Becoming ‘Prime’ Tax Haven: EU Panama Inquiry Vice Chair</a>
+<br>
 
 <br>
 ECONOMY
