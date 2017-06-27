@@ -13,7 +13,7 @@ NEGATIVE TACTICS
 <br>
 <a href="https://www.theguardian.com/politics/2017/may/27/conservatives-facebook-dark-ads-data-protection-election">Revealed: Tory ‘dark’ ads targeted voters’ Facebook feeds in Welsh marginal seat</a> <a href="https://archive.is/EPU3t">(archive)</a>
 <br>
-<a href="http://hopenothate.org.uk/2017/05/16/national-front-ukip-now-tories/">FROM THE NATIONAL FRONT, TO UKIP… AND NOW THE TORIES</a>
+<a href="http://hopenothate.org.uk/2017/05/16/national-front-ukip-now-tories/">FROM THE NATIONAL FRONT, TO UKIP… AND NOW THE TORIES</a> <a href="https://archive.is/p3VXn">(archive)</a>
 <br>
 <a href="https://politicalscrapbook.net/2017/06/bitter-tory-councillor-wants-to-ban-students-from-voting-in-university-seats/">BITTER TORY COUNCILLOR WANTS TO BAN STUDENTS FROM VOTING IN UNIVERSITY SEATS</a>
 <br>
