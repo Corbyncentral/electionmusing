@@ -21,7 +21,7 @@ NEGATIVE TACTICS
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/philip-davies-filibuster-domestic-violence-a7479266.html">Here are some of the bills Tory MP Philip Davies has filibustered</a> <a href="https://web.archive.org/web/20170627234954/http://www.independent.co.uk/news/uk/politics/philip-davies-filibuster-domestic-violence-a7479266.html">(archive)</a>
 <br>
-<a href="http://www.independent.co.uk/news/uk/politics/conservatives-voter-registration-social-media-not-use-encourage-facebook-twitter-election-2017-a7756736.html">Conservatives did not once use social media to encourage voter registration, study finds</a>
+<a href="http://www.independent.co.uk/news/uk/politics/conservatives-voter-registration-social-media-not-use-encourage-facebook-twitter-election-2017-a7756736.html">Conservatives did not once use social media to encourage voter registration, study finds</a> <a href="https://web.archive.org/web/20170627235320/http://www.independent.co.uk/news/uk/politics/conservatives-voter-registration-social-media-not-use-encourage-facebook-twitter-election-2017-a7756736.html">(archive)</a>
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/conservative-manifesto-general-election-2017-voter-id-laws-racist-voters-poll-latest-a7742666.html">Conservatives will force people to use photo ID to vote, stopping millions from taking part in future elections</a>
 <br>
