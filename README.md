@@ -608,7 +608,7 @@ BREXIT
 <br>
 
 <br>
-PANAMA PAPERS SCANDAL
+PANAMA PAPERS AND TAXATION
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/leaked-papers-link-home-secretary-amber-rudd-to-bahamas-offshore-tax-haven-a7321676.html">Leaked papers 'link Home Secretary Amber Rudd to Bahamas offshore tax haven'</a>
 <br>
@@ -619,6 +619,8 @@ PANAMA PAPERS SCANDAL
 <a href="https://panamapapers.icij.org">The International Consortium of Investigative Journalists: The Panama Papers</a>
 <br>
 <a href="https://amp.theguardian.com/world/2017/jun/01/super-rich-evade-on-average-nearly-third-of-their-due-tax">Super-rich evade on average nearly third of their due tax</a>
+<br>
+<a href="http://www.independent.co.uk/news/uk/politics/these-are-the-british-meps-who-voted-against-plans-to-crack-down-on-corporate-tax-evasion-a6982271.html?amp">These are the British MEPs who voted against plans to crack down on corporate tax dodging</a>
 <br>
 
 <br>
