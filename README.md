@@ -19,7 +19,7 @@ NEGATIVE TACTICS
 <br>
 <a href="http://www.mirror.co.uk/news/politics/no-show-tory-candidates-pulling-10570816">No Show Tory candidates are pulling out of hustings because they're too chicken to face the public</a> <a href="https://archive.is/jcvKv">(archive)</a>
 <br>
-<a href="http://www.independent.co.uk/news/uk/politics/philip-davies-filibuster-domestic-violence-a7479266.html">Here are some of the bills Tory MP Philip Davies has filibustered</a>
+<a href="http://www.independent.co.uk/news/uk/politics/philip-davies-filibuster-domestic-violence-a7479266.html">Here are some of the bills Tory MP Philip Davies has filibustered</a> <a href="https://web.archive.org/web/20170627234954/http://www.independent.co.uk/news/uk/politics/philip-davies-filibuster-domestic-violence-a7479266.html">(archive)</a>
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/conservatives-voter-registration-social-media-not-use-encourage-facebook-twitter-election-2017-a7756736.html">Conservatives did not once use social media to encourage voter registration, study finds</a>
 <br>
