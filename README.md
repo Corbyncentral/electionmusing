@@ -700,6 +700,8 @@ JEREMY HUNT
 <br>
 <a href="http://www.telegraph.co.uk/news/politics/9232715/Jeremy-Hunt-avoided-100000-tax-bill-in-deal-just-days-before-rate-rise.html">Jeremy Hunt avoided £100,000 tax bill in deal just days before rate rise</a>
 <br>
+<a href="http://www.independent.co.uk/news/health/nhs-documents-jeremy-hunt-delayed-telling-patients-mislaid-confidential-sbs-nao-report-a7809496.html">Jeremy Hunt and NHS 'delayed telling patients' about mislaid confidential documents after private firm blunder</a>
+<br>
 
 <br>
 BORIS JOHNSON
