@@ -661,6 +661,8 @@ Labour’s Israel lobby plans to relaunch campaign against Corbyn</a>
 <br>
 <a href="https://electronicintifada.net/blogs/david-cronin/new-british-minister-michael-gove-gets-funding-israel-lobby">New British minister Michael Gove gets funding from Israel lobby</a>
 <br>
+<a href="http://freespeechonisrael.org.uk/jeremy-corbyn/">I’m a British Jew, and I Don’t Fear a Corbyn Victory I’d Welcome It</a>
+<br>
 
 <br>
 MICHAEL FALLON
