@@ -568,6 +568,8 @@ NHS
 <br>
 <a href="http://www.independent.co.uk/news/health/nhs-latest-senior-doctors-hospitals-underfunding-accelerate-privatisation-agenda-conservative-a7808591.html?amp">Senior doctors accuse Government of deliberately underfunding NHS to accelerate privatisation plans</a>
 <br>
+<a href="http://www.independent.co.uk/voices/northern-ireland-dup-theresa-may-jeremy-hunt-nhs-cuts-secret-whistleblower-austerity-a7810066.html?amp">As Northern Ireland is handed £1bn by Theresa May, Jeremy Hunt is sneaking in a fresh round of brutal NHS cuts</a>
+<br>
 
 <br>
 UN
