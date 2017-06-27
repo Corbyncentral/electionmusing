@@ -7,7 +7,7 @@ NEGATIVE TACTICS
 <a href="https://skwawkbox.org/2017/06/24/exclusive-bluetelecoms-texts-map-increasing-tory-ge17-desperation/amp/">Exclusive: #BlueTelecoms texts map increasing Tory #GE17 desperation</a>
 <a href="https://archive.is/Y6YV4">(archive)</a>
 <br>
-<a href="http://metro.co.uk/2017/06/10/tories-spent-1200000-on-negative-anti-jeremy-corbyn-social-media-adverts-6699774/">Conservatives spent £1.2m on negative Jeremy Corbyn social media adverts</a>
+<a href="http://metro.co.uk/2017/06/10/tories-spent-1200000-on-negative-anti-jeremy-corbyn-social-media-adverts-6699774/">Conservatives spent £1.2m on negative Jeremy Corbyn social media adverts</a> <a href="https://archive.is/ZeTRw">(archive)</a>
 <br>
 <a href="https://insidecroydon.com/2017/06/07/barwells-bogus-dear-neighbour-letters-use-an-old-cons-trick/">Barwells bogus dear neighbour letters use an old cons trick</a>
 <br>
