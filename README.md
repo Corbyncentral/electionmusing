@@ -377,7 +377,7 @@ RIGHT WING
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/tory-voters-more-right-wing-ukip-poll-latest-theresa-may-nigel-farage-a7737491.html">Tory voters think their party is now more right-wing than Ukip, poll finds</a> <a href="https://web.archive.org/web/20170628185550/http://www.independent.co.uk/news/uk/politics/tory-voters-more-right-wing-ukip-poll-latest-theresa-may-nigel-farage-a7737491.html">(archive)</a>
 <br>
-<a href="http://www.newstatesman.com/politics/uk/2017/03/theresa-may-delivering-ukip-2015-manifesto">May is delivering the Ukip 2015 manifesto</a>
+<a href="http://www.newstatesman.com/politics/uk/2017/03/theresa-may-delivering-ukip-2015-manifesto">May is delivering the Ukip 2015 manifesto</a> <a href="https://archive.is/4dESt">(archive)</a>
 <br>
 <a href="http://www.politics.co.uk/blogs/2016/10/05/the-tories-have-finally-become-ukip">The Tories have finally become Ukip</a>
 <br>
