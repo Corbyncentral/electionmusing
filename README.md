@@ -99,7 +99,7 @@ TERROR
 <br>
 <a href="http://www.independent.co.uk/news/uk/home-news/finsbury-park-attack-far-right-extremist-rise-year-statistics-prevent-terrorism-scheme-referrals-a7798231.html">Number of far-right extremists flagged to Government terror unit soars 30% in a year</a> <a href="https://web.archive.org/web/20170628012441/http://www.independent.co.uk/news/uk/home-news/finsbury-park-attack-far-right-extremist-rise-year-statistics-prevent-terrorism-scheme-referrals-a7798231.html">(archive)</a>
 <br>
-<a href="http://www.telegraph.co.uk/news/2016/04/20/border-security-budget-to-fall-by-2-million-theresa-may-confirms/amp/">Border security budget to fall by £2 million, Theresa May confirms</a>
+<a href="http://www.telegraph.co.uk/news/2016/04/20/border-security-budget-to-fall-by-2-million-theresa-may-confirms/amp/">Border security budget to fall by £2 million, Theresa May confirms</a> <a href="https://archive.is/UfeNr">(archive)</a>
 <br>
 
 
