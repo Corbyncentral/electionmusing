@@ -311,7 +311,7 @@ FIRE
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/government-criticised-over-quietly-abandoning-requirement-for-new-schools-to-install-fire-sprinklers-a7219276.html">Government criticised over quietly abandoning requirement for new schools to install fire sprinkler systems</a> <a href="https://web.archive.org/web/20170628164909/http://www.independent.co.uk/news/uk/politics/government-criticised-over-quietly-abandoning-requirement-for-new-schools-to-install-fire-sprinklers-a7219276.html">(archive)</a>
 <br>
-<a href="https://politicalscrapbook.net/2017/06/fire-station-shut-by-boris-johnson-to-be-turned-into-luxury-flats-by-company-owned-run-tory-donor/amp/">FIRE STATION SHUT BY BORIS JOHNSON TO BE TURNED INTO LUXURY FLATS BY COMPANY RUN BY TORY DONOR</a>
+<a href="https://politicalscrapbook.net/2017/06/fire-station-shut-by-boris-johnson-to-be-turned-into-luxury-flats-by-company-owned-run-tory-donor/amp/">FIRE STATION SHUT BY BORIS JOHNSON TO BE TURNED INTO LUXURY FLATS BY COMPANY RUN BY TORY DONOR</a> <a href="https://archive.is/l2x1p">(archive)</a>
 <br>
 <a href="https://www.thecanary.co/2017/06/23/weve-been-investigating-evidence-grenfell-found-numbing/">We’ve been investigating the evidence about the Grenfell fire. And what we’ve found is numbing.</a>
 <br>
