@@ -525,15 +525,15 @@ CORRUPTION ALLEGATIONS
 <br>
 <a href="http://nicholaswilson.com/the-corporate-panopticon-britain-today/">The Corporate Panopticon – how HSBC controls society</a> <a href="http://nicholaswilson.com/the-corporate-panopticon-britain-today/">(archive)</a>
 <br>
-<a href="https://www.theguardian.com/business/2016/jul/11/hsbc-us-money-laundering-george-osborne-report">HSBC escaped US money-laundering charges after Osborne's intervention</a>
+<a href="https://www.theguardian.com/business/2016/jul/11/hsbc-us-money-laundering-george-osborne-report">HSBC escaped US money-laundering charges after Osborne's intervention</a> <a href="https://archive.is/dbCtm">(archive)</a>
 <br>
-<a href="http://voxpoliticalonline.com/2017/05/02/whats-this-hsbc-bank-covertly-funding-the-conservative-party-can-anyone-smell-a-scandal/">What’s this? HSBC Bank covertly funding the Conservative Party? Can anyone smell a scandal?</a>
+<a href="http://voxpoliticalonline.com/2017/05/02/whats-this-hsbc-bank-covertly-funding-the-conservative-party-can-anyone-smell-a-scandal/">What’s this? HSBC Bank covertly funding the Conservative Party? Can anyone smell a scandal?</a> <a href="https://archive.is/lEIVS">(archive)</a>
 <br>
-<a href="https://www.commonspace.scot/articles/10886/campaigners-rail-against-tories-cash-conservatives-scandal">Campaigners rail against Tories in 'cash for conservatives' scandal</a>
+<a href="https://www.commonspace.scot/articles/10886/campaigners-rail-against-tories-cash-conservatives-scandal">Campaigners rail against Tories in 'cash for conservatives' scandal</a> <a href="https://archive.is/8jbaf">(archive)</a>
 <br>
-<a href="https://www.thecanary.co/2017/06/20/eve-queens-speech-new-election-expenses-scandal-x/">On the eve of the Queen’s speech, a new election expenses scandal breaks. This one could sink Theresa May.</a>
+<a href="https://www.thecanary.co/2017/06/20/eve-queens-speech-new-election-expenses-scandal-x/">On the eve of the Queen’s speech, a new election expenses scandal breaks. This one could sink Theresa May.</a> <a href="https://web.archive.org/web/20170628234220/https://www.thecanary.co/2017/06/20/eve-queens-speech-new-election-expenses-scandal-x/">(archive)</a>
 <br>
-<a href="https://www.channel4.com/news/revealed-inside-the-secretive-tory-election-call-centre">Revealed: Inside the secretive Tory election call centre</a>
+<a href="https://www.channel4.com/news/revealed-inside-the-secretive-tory-election-call-centre">Revealed: Inside the secretive Tory election call centre</a> <a href="https://archive.is/VrZZT">(archive)</a>
 <br>
 
 <br>
