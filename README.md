@@ -179,7 +179,7 @@ THERESA MAY
 <br>
 <a href="http://www.newstatesman.com/politics/uk/2017/06/jo-cox-helped-transform-britain-better-lets-remember-her-joy">Theresa May's plans to regulate the internet are late, unworkable and wrong</a> <a href="https://archive.is/k3mtg">(archive)</a>
 <br>
-<a href="http://www.independent.co.uk/news/uk/politics/theresa-may-philip-may-amazon-starbucks-google-capital-group-philip-morris-a7133231.html">Theresa May’s husband is a senior executive at a $1.4tn investment fund that profits from tax avoiding companies</a>
+<a href="http://www.independent.co.uk/news/uk/politics/theresa-may-philip-may-amazon-starbucks-google-capital-group-philip-morris-a7133231.html">Theresa May’s husband is a senior executive at a $1.4tn investment fund that profits from tax avoiding companies</a> <a href="https://web.archive.org/web/20170628031541/http://www.independent.co.uk/news/uk/politics/theresa-may-philip-may-amazon-starbucks-google-capital-group-philip-morris-a7133231.html">(archive)</a>
 <br>
 <a href="https://www.theguardian.com/politics/2017/jan/10/theresa-may-urged-to-disclose-contents-of-blind-trust">Theresa May urged to disclose contents of blind trust</a>
 <br>
