@@ -517,13 +517,13 @@ CORRUPTION ALLEGATIONS
 <br>
 <a href="http://www.heraldscotland.com/news/15298376.Video__New_concerns_over_top_Tories__links_to_election_count_firm_as_warning_over_leaks_emerge/?ref=twtrec">New concerns over top Tories' links to election count firm as warning over leaks emerge</a> <a href="https://archive.is/7NzB4">(archive)</a>
 <br>
-<a href="https://thesecretbarrister.com/2017/05/10/myth-busting-the-tory-election-fraud-a-10-point-guide/">Myth-busting the “Tory election fraud” – A 10-point guide</a>
+<a href="https://thesecretbarrister.com/2017/05/10/myth-busting-the-tory-election-fraud-a-10-point-guide/">Myth-busting the “Tory election fraud” – A 10-point guide</a> <a href="https://archive.is/206rZ">(archive)</a>
 <br>
-<a href="https://www.thecanary.co/2017/05/03/breaking-whistleblowers-come-forward-new-election-fraud-evidence-every-voter-needs-see/">Whistleblowers have come forward with new election fraud evidence that every UK voter needs to read</a>
+<a href="https://www.thecanary.co/2017/05/03/breaking-whistleblowers-come-forward-new-election-fraud-evidence-every-voter-needs-see/">Whistleblowers have come forward with new election fraud evidence that every UK voter needs to read</a> <a href="https://web.archive.org/web/20170628232827/https://www.thecanary.co/2017/05/03/breaking-whistleblowers-come-forward-new-election-fraud-evidence-every-voter-needs-see/">(archive)</a>
 <br>
-<a href="http://theleveller.org/2016/02/hsbc/">The Bank You Can’t Afford To Offend</a>
+<a href="http://theleveller.org/2016/02/hsbc/">The Bank You Can’t Afford To Offend</a> <a href="https://archive.is/pSymZ">(archive)</a>
 <br>
-<a href="http://nicholaswilson.com/the-corporate-panopticon-britain-today/">The Corporate Panopticon – how HSBC controls society</a>
+<a href="http://nicholaswilson.com/the-corporate-panopticon-britain-today/">The Corporate Panopticon – how HSBC controls society</a> <a href="http://nicholaswilson.com/the-corporate-panopticon-britain-today/">(archive)</a>
 <br>
 <a href="https://www.theguardian.com/business/2016/jul/11/hsbc-us-money-laundering-george-osborne-report">HSBC escaped US money-laundering charges after Osborne's intervention</a>
 <br>
