@@ -293,7 +293,7 @@ FIRE
 <br>
 <a href="http://www.independent.co.uk/voices/election-tories-labour-corbyn-fire-service-dangerous-cuts-a7773826.html">As a firefighter, I know that fire service cuts brought in by the Tories are just as dangerous as those to the police</a> <a href="https://web.archive.org/web/20170628160633/http://www.independent.co.uk/voices/election-tories-labour-corbyn-fire-service-dangerous-cuts-a7773826.html">(archive)</a>
 <br>
-<a href="http://www.mirror.co.uk/news/uk-news/firefighters-cut-6700-under-tories-7085563">Firefighters cut by 6,700 under Tories as union warns of ''disastrous'' impact on safety</a>
+<a href="http://www.mirror.co.uk/news/uk-news/firefighters-cut-6700-under-tories-7085563">Firefighters cut by 6,700 under Tories as union warns of ''disastrous'' impact on safety</a> <a href="https://archive.is/sfkHe">(archive)</a>
 <br>
 <a href="http://www.huffingtonpost.co.uk/entry/grenfell-tower-fire-boris-johnson_uk_594267c2e4b0d31854872fed">Boris Johnson’s ‘Get Stuffed’ Response To Question About London Firefighter Cuts Is Coming Back To Haunt Him</a>
 <br>
