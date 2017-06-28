@@ -201,7 +201,7 @@ THERESA MAY
 <br>
 <a href="http://voxpoliticalonline.com/2017/06/18/desperate-theresa-may-is-playing-fast-and-loose-with-our-constitution-to-keep-herself-in-power/">Theresa May has announced she is cancelling next year’s Queen’s Speech in order to give herself two more years in office</a> <a href="https://archive.is/Wo98p">(archive)</a>
 <br>
-<a href="http://www.telegraph.co.uk/news/2017/06/21/theresa-mays-10th-political-adviser-quits-downing-street/amp/">Theresa May's 10th political adviser quits Downing Street</a>
+<a href="http://www.telegraph.co.uk/news/2017/06/21/theresa-mays-10th-political-adviser-quits-downing-street/amp/">Theresa May's 10th political adviser quits Downing Street</a> <a href="https://archive.is/iBMrk">(archive)</a>
 <br>
 
 <br>
