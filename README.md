@@ -229,7 +229,7 @@ AUSTERITY/WELFARE
 <br>
 DISABILITY
 <br>
-<a href="https://www.theguardian.com/commentisfree/2012/jan/18/conservative-party-attacks-disabled-people">I left the Conservative party over its attacks on disabled people</a>
+<a href="https://www.theguardian.com/commentisfree/2012/jan/18/conservative-party-attacks-disabled-people">I left the Conservative party over its attacks on disabled people</a> <a href="https://archive.is/GrQxL">(archive)</a>
 <br>
 <a href="https://www.theguardian.com/society/2015/jul/21/conservatives-redefining-sick-disabled-welfare-bill">The Tories are callously redefining what it means to be sick or disabled</a>
 <br>
