@@ -219,7 +219,7 @@ AUSTERITY/WELFARE
 <br>
 <a href="https://www.research.manchester.ac.uk/portal/files/30943451/FULL_TEXT.PDF">Reinforcing neoliberalism: crisis and austerity in the UK</a> <a href="https://web.archive.org/web/20170628042018/https://www.research.manchester.ac.uk/portal/files/30943451/FULL_TEXT.PDF">(archive)</a>
 <br>
-<a href="https://www.theguardian.com/business/2016/may/27/austerity-policies-do-more-harm-than-good-imf-study-concludes">Austerity policies do more harm than good, IMF study concludes</a>
+<a href="https://www.theguardian.com/business/2016/may/27/austerity-policies-do-more-harm-than-good-imf-study-concludes">Austerity policies do more harm than good, IMF study concludes</a> <a href="https://archive.is/d6NZS">(archive)</a>
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/benefit-cap-judicial-review-welfare-payments-government-loses-lawsuit-court-case-judge-misery-a7802286.html">Tory Government’s benefit cap is unlawful and causes 'real misery for no good purpose', High Court rules</a>
 <br>
