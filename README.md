@@ -217,7 +217,7 @@ AUSTERITY/WELFARE
 <br>
 <a href="https://www.opendemocracy.net/5050/heather-mcrobie/austerity-policies-in-europe-are-fuelling-social-injustice-and-violating-human-">Austerity policies in Europe are fuelling social injustice - and violating human rights</a> <a href="https://archive.is/l9cSi">(archive)</a>
 <br>
-<a href="https://www.research.manchester.ac.uk/portal/files/30943451/FULL_TEXT.PDF">Reinforcing neoliberalism: crisis and austerity in the UK</a>
+<a href="https://www.research.manchester.ac.uk/portal/files/30943451/FULL_TEXT.PDF">Reinforcing neoliberalism: crisis and austerity in the UK</a> <a href="https://web.archive.org/web/20170628042018/https://www.research.manchester.ac.uk/portal/files/30943451/FULL_TEXT.PDF">(archive)</a>
 <br>
 <a href="https://www.theguardian.com/business/2016/may/27/austerity-policies-do-more-harm-than-good-imf-study-concludes">Austerity policies do more harm than good, IMF study concludes</a>
 <br>
