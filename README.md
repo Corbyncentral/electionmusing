@@ -61,7 +61,7 @@ JEREMY CORBYN
 <br>
 <a href="http://www.thelondoneconomic.com/tle-pick/think-jeremy-corbyn-is-a-loser-oh-dear-youve-been-brainwashed/18/08/">Think Jeremy Corbyn is a loser, oh dear, you've been brainwashed</a> <a href="https://archive.is/oLJgF">(archive)</a>
 <br>
-<a href="http://www.thelondoneconomic.com/news/politics/facebook-comment-jeremy-corbyn-going-viral/31/05/">Facebook comment about Jeremy Corbyn going viral</a>
+<a href="http://www.thelondoneconomic.com/news/politics/facebook-comment-jeremy-corbyn-going-viral/31/05/">Facebook comment about Jeremy Corbyn going viral</a> <a href="https://archive.is/JUXxU">(archive)</a>
 <br>
 <a href="https://skwawkbox.org/2017/05/25/world-exclusive-corbyn-mowlams-envoy-to-ira-and-loyalists/">WORLD EXCLUSIVE: #CORBYN – MOWLAM’S ENVOY, MET IRA AND LOYALISTS</a>
 <br>
