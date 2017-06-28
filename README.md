@@ -321,7 +321,7 @@ HOUSING
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/landlord-tory-mp-philip-davies-law-requiring-homes-be-fit-for-human-habitation-unnecessary-a6696931.html">Landlord Tory MP Philip Davies says law requiring homes be fit for human habitation is an unnecessary burden</a> <a href="https://web.archive.org/web/20170628170037/http://www.independent.co.uk/news/uk/politics/landlord-tory-mp-philip-davies-law-requiring-homes-be-fit-for-human-habitation-unnecessary-a6696931.html">(archive)</a>
 <br>
-<a href="http://www.redpepper.org.uk/private-tenants-need-protection/">Private tenants need protection</a>
+<a href="http://www.redpepper.org.uk/private-tenants-need-protection/">Private tenants need protection</a> <a href="https://archive.is/axvqG">(archive)</a>
 <br>
 <a href="http://www.mirror.co.uk/news/uk-news/richest-mp-britain-slams-welfare-3178089">Richest MP in Britain slams welfare state but makes £120k a year in housing benefit</a>
 <br>
