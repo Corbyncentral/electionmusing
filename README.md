@@ -407,7 +407,7 @@ EMPLOYMENT
 <br>
 EDUCATION
 <br>
-<a href="http://www.mirror.co.uk/news/politics/how-tory-school-funding-cuts-10047684">How will Tory school funding cuts hit my area? Search by postcode to see shocking figures</a>
+<a href="http://www.mirror.co.uk/news/politics/how-tory-school-funding-cuts-10047684">How will Tory school funding cuts hit my area? Search by postcode to see shocking figures</a> <a href="https://archive.is/23VZo">(archive)</a>
 <br>
 <a href="https://inews.co.uk/essentials/news/education/headteachers-letter-general-election-2017/">Thousands of headteachers write to parents warning of school funding cuts before election</a>
 <br>
