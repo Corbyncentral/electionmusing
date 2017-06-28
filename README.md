@@ -409,13 +409,13 @@ EDUCATION
 <br>
 <a href="http://www.mirror.co.uk/news/politics/how-tory-school-funding-cuts-10047684">How will Tory school funding cuts hit my area? Search by postcode to see shocking figures</a> <a href="https://archive.is/23VZo">(archive)</a>
 <br>
-<a href="https://inews.co.uk/essentials/news/education/headteachers-letter-general-election-2017/">Thousands of headteachers write to parents warning of school funding cuts before election</a>
+<a href="https://inews.co.uk/essentials/news/education/headteachers-letter-general-election-2017/">Thousands of headteachers write to parents warning of school funding cuts before election</a> <a href="https://archive.is/utRlM">(archive)</a>
 <br>
-<a href="https://www.theguardian.com/society/2017/feb/02/sure-start-centres-300-closed-since-2010">More than 350 Sure Start children's centres have closed since 2010</a>
+<a href="https://www.theguardian.com/society/2017/feb/02/sure-start-centres-300-closed-since-2010">More than 350 Sure Start children's centres have closed since 2010</a> <a href="https://archive.is/H2suN">(archive)</a>
 <br>
-<a href="http://www.independent.co.uk/voices/closing-libraries-is-a-fine-way-to-keep-the-poor-powerless-a6958631.html">Closing libraries is a fine way to keep the poor powerless</a>
+<a href="http://www.independent.co.uk/voices/closing-libraries-is-a-fine-way-to-keep-the-poor-powerless-a6958631.html">Closing libraries is a fine way to keep the poor powerless</a> <a href="https://web.archive.org/web/20170628201047/http://www.independent.co.uk/voices/closing-libraries-is-a-fine-way-to-keep-the-poor-powerless-a6958631.html">(archive)</a>
 <br>
-<a href="https://amp.theguardian.com/money/2017/jun/15/uk-student-loan-debt-soars-to-more-than-100bn">UK student loan debt soars to more than £100bn</a>
+<a href="https://amp.theguardian.com/money/2017/jun/15/uk-student-loan-debt-soars-to-more-than-100bn">UK student loan debt soars to more than £100bn</a> <a href="https://archive.is/76ZL8">(archive)</a>
 <br>
 
 <br>
