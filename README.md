@@ -141,7 +141,7 @@ DUP
 <br>
 <a href="http://www.irishtimes.com/news/environment/q-a-what-is-the-northern-ireland-cash-for-ash-scheme-1.2907866">Q&A: What is the Northern Ireland ‘cash for ash’ scheme?</a> <a href="https://archive.is/NY4Aq">(archive)</a>
 <br>
-<a href="https://www.theguardian.com/politics/2017/jun/12/dup-theresa-may-deal-conservatives">DUP will ask Theresa May for a deal that keeps paying out</a>
+<a href="https://www.theguardian.com/politics/2017/jun/12/dup-theresa-may-deal-conservatives">DUP will ask Theresa May for a deal that keeps paying out</a> <a href="https://archive.is/C0nRY">(archive)</a>
 <br>
 <a href="http://www.belfastdaily.co.uk/2013/04/18/dup-man-jailed-over-pipe-bomb-attack-on-polish-family/">DUP MAN JAILED OVER PIPE BOMB ATTACK ON POLISH FAMILY</a>
 <br>
