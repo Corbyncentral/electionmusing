@@ -151,7 +151,7 @@ DUP
 <br>
 <a href="http://uk.businessinsider.com/may-government-court-challenge-pact-dup-good-friday-agreement-2017-6?r=US&IR=T">Theresa May's government could be taken to court over its plan to form a pact with the DUP</a> <a href="https://archive.is/oeSrx">(archive)</a>
 <br>
-<a href="https://skwawkbox.org/2017/06/22/breaking-ireland-will-block-brexit-deal-if-maydup-deal-goes-ahead/amp/">Breaking – Ireland will block #Brexit deal if #MayDUP deal goes ahead</a>
+<a href="https://skwawkbox.org/2017/06/22/breaking-ireland-will-block-brexit-deal-if-maydup-deal-goes-ahead/amp/">Breaking – Ireland will block #Brexit deal if #MayDUP deal goes ahead</a> <a href="https://archive.is/ZltYw">(archive)</a>
 <br>
 <a href="https://amp.theguardian.com/commentisfree/2017/jun/26/shoddy-dup-deal-cost-theresa-may-more-1bn">This shoddy DUP deal will ultimately cost Theresa May far more than £1bn</a>
 <br>
