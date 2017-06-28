@@ -69,7 +69,7 @@ JEREMY CORBYN
 <br>
 <a href="https://jacobinmag.com/2017/06/jeremy-corbyn-attacks-media-labour-election-prime-minister">A History of Sabotaging Jeremy Corbyn</a> <a href="https://archive.is/gFDjh">(archive)</a>
 <br>
-<a href="http://anotherangryvoice.blogspot.co.uk/2016/07/the-mainstream-media-propaganda-war.html">The mainstream media propaganda war against Jeremy Corbyn</a>
+<a href="http://anotherangryvoice.blogspot.co.uk/2016/07/the-mainstream-media-propaganda-war.html">The mainstream media propaganda war against Jeremy Corbyn</a> <a href="https://archive.is/Jp4ZJ">(archive)</a>
 <br>
 <a href="https://www.opendemocracy.net/uk/des-freedman-justin-schlosberg/jeremy-corbyn-impartiality-and-media-misrepresentation">Jeremy Corbyn, impartiality and media misrepresentation</a>
 <br>
