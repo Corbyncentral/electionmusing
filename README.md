@@ -466,7 +466,7 @@ NASTY PARTY
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/grenfell-tower-fire-latest-conservative-politician-offensive-tweet-uproar-theresa-may-hitler-a7802571.html?amp">Grenfell Tower fire: Tory politician defends motivations behind 'offensive' Hitler tweet</a> <a href="https://web.archive.org/web/20170628212432/http://www.independent.co.uk/news/uk/politics/grenfell-tower-fire-latest-conservative-politician-offensive-tweet-uproar-theresa-may-hitler-a7802571.html?amp">(archive)</a>
 <br>
-<a href="http://www.independent.co.uk/news/uk/politics/general-election-2017-james-heappey-tory-mp-referendum-scottish-national-party-a7735311.html?amp">Tory MP 'told schoolgirl to "f*** off back to Scotland" when she said she'd vote for independence.</a>
+<a href="http://www.independent.co.uk/news/uk/politics/general-election-2017-james-heappey-tory-mp-referendum-scottish-national-party-a7735311.html?amp">Tory MP 'told schoolgirl to "f*** off back to Scotland" when she said she'd vote for independence</a> <a href="https://web.archive.org/web/20170628213004/http://www.independent.co.uk/news/uk/politics/general-election-2017-james-heappey-tory-mp-referendum-scottish-national-party-a7735311.html?amp">(archive)</a>
 <br>
 
 
