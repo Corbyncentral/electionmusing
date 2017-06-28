@@ -303,7 +303,7 @@ FIRE
 <br>
 <a href="http://uk.businessinsider.com/gavin-barwell-under-fire-for-delaying-report-into-fire-safety-as-housing-minister-2017-6">Theresa May's new chief of staff 'sat on' a review of fire safety in tower blocks like Grenfell Tower</a> <a href="https://archive.is/bcuvA">(archive)</a>
 <br>
-<a href="http://www.independent.co.uk/news/uk/politics/brexit-safety-standards-workers-rights-jacob-rees-mogg-a7459336.html">Britain could slash environmental and safety standards 'a very long way' after Brexit, Tory MP Jacob Rees-Mogg says</a>
+<a href="http://www.independent.co.uk/news/uk/politics/brexit-safety-standards-workers-rights-jacob-rees-mogg-a7459336.html">Britain could slash environmental and safety standards 'a very long way' after Brexit, Tory MP Jacob Rees-Mogg says</a> <a href="https://web.archive.org/web/20170628163748/http://www.independent.co.uk/news/uk/politics/brexit-safety-standards-workers-rights-jacob-rees-mogg-a7459336.html">(archive)</a>
 <br>
 <a href="http://metro.co.uk/2017/06/16/government-ministers-congratulated-themselves-for-cutting-fire-regulations-6713967/amp/">Government ministers ‘congratulated themselves’ for cutting fire regulations</a>
 <br>
