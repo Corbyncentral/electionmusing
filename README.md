@@ -297,7 +297,7 @@ FIRE
 <br>
 <a href="http://www.huffingtonpost.co.uk/entry/grenfell-tower-fire-boris-johnson_uk_594267c2e4b0d31854872fed">Boris Johnson’s ‘Get Stuffed’ Response To Question About London Firefighter Cuts Is Coming Back To Haunt Him</a> <a href="https://archive.is/VrQ0E">(archive)</a>
 <br>
-<a href="https://www.thecanary.co/2017/06/15/rapper-akala-smashes-biggest-lie-grenfell-disaster-whole-country-see-video/">Rapper Akala smashes the biggest lie about the Grenfell disaster, for the whole country to see</a>
+<a href="https://www.thecanary.co/2017/06/15/rapper-akala-smashes-biggest-lie-grenfell-disaster-whole-country-see-video/">Rapper Akala smashes the biggest lie about the Grenfell disaster, for the whole country to see</a> <a href="https://web.archive.org/web/20170628162722/https://www.thecanary.co/2017/06/15/rapper-akala-smashes-biggest-lie-grenfell-disaster-whole-country-see-video/">(archive)</a>
 <br>
 <a href="https://www.theguardian.com/uk-news/2017/jun/15/experts-warned-government-against-cladding-material-used-on-grenfell">Experts warned government against cladding material used on Grenfell</a>
 <br>
