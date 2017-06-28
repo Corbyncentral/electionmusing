@@ -87,7 +87,7 @@ TERROR
 <br>
 <a href="https://cultureandpolitics.org/2017/05/27/51009/">Corbyn’s anti-terrorism strategy expose the flaws in Tory foreign policy</a> <a href="https://archive.is/h7JIR">(archive)</a>
 <br>
-<a href="http://www.mirror.co.uk/news/politics/six-times-tories-said-exactly-10511011">6 times Tories said exactly what they are now attacking Jeremy Corbyn for saying about the war on terror</a>
+<a href="http://www.mirror.co.uk/news/politics/six-times-tories-said-exactly-10511011">6 times Tories said exactly what they are now attacking Jeremy Corbyn for saying about the war on terror</a> <a href="https://archive.is/z9HY0">(archive)</a>
 <br>
 <a href="http://www.huffingtonpost.co.uk/john-wight/saudi-arabia-extremism_b_16948624.html">Fighting Extremism While Cosying Up To Saudi Arabia Is Hypocrisy</a>
 <br>
