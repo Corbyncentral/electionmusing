@@ -399,7 +399,7 @@ EMPLOYMENT
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/dwp-benefit-cuts-jobcentre-closures-local-travel-costs-further-pcs-a7547351.html">Unemployed will be forced to travel further to sign on as DWP plans to close 78 local Jobcentres</a> <a href="https://web.archive.org/web/20170628195023/http://www.independent.co.uk/news/uk/politics/dwp-benefit-cuts-jobcentre-closures-local-travel-costs-further-pcs-a7547351.html">(archive)</a>
 <br>
-<a href="https://www.theguardian.com/commentisfree/2013/dec/19/zero-hours-contracts-vince-cable-crack-down-exploitation">It's not zero-hours contracts that are the problem, it's the bosses who abuse them</a>
+<a href="https://www.theguardian.com/commentisfree/2013/dec/19/zero-hours-contracts-vince-cable-crack-down-exploitation">It's not zero-hours contracts that are the problem, it's the bosses who abuse them</a> <a href="https://archive.is/glzw9">(archive)</a>
 <br>
 <a href="http://www.bbc.co.uk/news/business-36735004">New government pension rules open the door to rip-offs</a>
 <br>
