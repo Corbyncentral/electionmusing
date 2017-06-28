@@ -383,7 +383,7 @@ RIGHT WING
 <br>
 <a href="http://metro.co.uk/2017/04/27/some-of-bnps-2005-election-pledges-are-now-mainstream-policy-6599296/">Some of the BNP’s 2005 election pledges are now mainstream policy</a> <a href="https://archive.is/G6Rmu">(archive)</a>
 <br>
-<a href="http://www.independent.co.uk/news/world/europe/donald-trump-nigel-farage-europe-politics-le-pen-ukip-afd-authoritarian-populism-yougov-defining-a7430341.html">'Authoritarian populism' behind Donald Trump's victory and Brexit becoming driving force in European politics</a>
+<a href="http://www.independent.co.uk/news/world/europe/donald-trump-nigel-farage-europe-politics-le-pen-ukip-afd-authoritarian-populism-yougov-defining-a7430341.html">'Authoritarian populism' behind Donald Trump's victory and Brexit becoming driving force in European politics</a> <a href="https://web.archive.org/web/20170628190727/http://www.independent.co.uk/news/world/europe/donald-trump-nigel-farage-europe-politics-le-pen-ukip-afd-authoritarian-populism-yougov-defining-a7430341.html">(archive)</a>
 <br>
 
 
