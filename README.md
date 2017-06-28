@@ -379,7 +379,7 @@ RIGHT WING
 <br>
 <a href="http://www.newstatesman.com/politics/uk/2017/03/theresa-may-delivering-ukip-2015-manifesto">May is delivering the Ukip 2015 manifesto</a> <a href="https://archive.is/4dESt">(archive)</a>
 <br>
-<a href="http://www.politics.co.uk/blogs/2016/10/05/the-tories-have-finally-become-ukip">The Tories have finally become Ukip</a>
+<a href="http://www.politics.co.uk/blogs/2016/10/05/the-tories-have-finally-become-ukip">The Tories have finally become Ukip</a> <a href="https://archive.is/3BSWF">(archive)</a>
 <br>
 <a href="http://metro.co.uk/2017/04/27/some-of-bnps-2005-election-pledges-are-now-mainstream-policy-6599296/">Some of the BNP’s 2005 election pledges are now mainstream policy</a>
 <br>
