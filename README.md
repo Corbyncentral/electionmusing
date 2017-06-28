@@ -89,7 +89,7 @@ TERROR
 <br>
 <a href="http://www.mirror.co.uk/news/politics/six-times-tories-said-exactly-10511011">6 times Tories said exactly what they are now attacking Jeremy Corbyn for saying about the war on terror</a> <a href="https://archive.is/z9HY0">(archive)</a>
 <br>
-<a href="http://www.huffingtonpost.co.uk/john-wight/saudi-arabia-extremism_b_16948624.html">Fighting Extremism While Cosying Up To Saudi Arabia Is Hypocrisy</a>
+<a href="http://www.huffingtonpost.co.uk/john-wight/saudi-arabia-extremism_b_16948624.html">Fighting Extremism While Cosying Up To Saudi Arabia Is Hypocrisy</a> <a href="https://archive.is/IuZ4y">(archive)</a>
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/uk-government-attempting-to-keep-details-of-secret-security-pact-with-saudi-arabia-hidden-from-a6783376.html">UK Government attempting to keep details of secret security pact with Saudi Arabia hidden from public</a>
 <br>
