@@ -209,7 +209,7 @@ AUSTERITY/WELFARE
 <br>
 <a href="http://www.independent.co.uk/voices/talk-of-diversity-is-hypocritical-when-tory-policies-have-made-life-worse-for-ethnic-minorities-a6846501.html">Talk of diversity is hypocritical when Tory policies have made life worse for ethnic minorities</a> <a href="https://web.archive.org/web/20170628040457/http://www.independent.co.uk/voices/talk-of-diversity-is-hypocritical-when-tory-policies-have-made-life-worse-for-ethnic-minorities-a6846501.html">(archive)</a>
 <br>
-<a href="http://www.mirror.co.uk/news/politics/austerity-not-over-after-theresa-10613800">Austerity is NOT over after Theresa May's election disaster, says Michael Gove</a>
+<a href="http://www.mirror.co.uk/news/politics/austerity-not-over-after-theresa-10613800">Austerity is NOT over after Theresa May's election disaster, says Michael Gove</a> <a href="https://archive.is/epmVs">(archive)</a>
 <br>
 <a href="https://www.theguardian.com/business/ng-interactive/2015/apr/29/the-austerity-delusion">The austerity delusion</a>
 <br>
