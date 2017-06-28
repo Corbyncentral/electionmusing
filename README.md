@@ -197,7 +197,7 @@ THERESA MAY
 <br>
 <a href="http://www.huffingtonpost.co.uk/2011/09/29/theresa-may-in-lost-diary_n_986726.html">Theresa May In Lost Diary Blunder</a> <a href="https://archive.is/5EDq1">(archive)</a>
 <br>
-<a href="http://www.telegraph.co.uk/news/politics/conservative/11622552/Theresa-Mays-proposal-to-censor-TV-was-opposed-by-cabinet-colleague-leaked-letter-reveals.html">Theresa May's proposal to censor TV was opposed by cabinet colleague, leaked letter reveals</a>
+<a href="http://www.telegraph.co.uk/news/politics/conservative/11622552/Theresa-Mays-proposal-to-censor-TV-was-opposed-by-cabinet-colleague-leaked-letter-reveals.html">Theresa May's proposal to censor TV was opposed by cabinet colleague, leaked letter reveals</a> <a href="https://archive.is/CAAVe">(archive)</a>
 <br>
 <a href="http://voxpoliticalonline.com/2017/06/18/desperate-theresa-may-is-playing-fast-and-loose-with-our-constitution-to-keep-herself-in-power/">Theresa May has announced she is cancelling next year’s Queen’s Speech in order to give herself two more years in office</a>
 <br>
