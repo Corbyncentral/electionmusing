@@ -305,7 +305,7 @@ FIRE
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/brexit-safety-standards-workers-rights-jacob-rees-mogg-a7459336.html">Britain could slash environmental and safety standards 'a very long way' after Brexit, Tory MP Jacob Rees-Mogg says</a> <a href="https://web.archive.org/web/20170628163748/http://www.independent.co.uk/news/uk/politics/brexit-safety-standards-workers-rights-jacob-rees-mogg-a7459336.html">(archive)</a>
 <br>
-<a href="http://metro.co.uk/2017/06/16/government-ministers-congratulated-themselves-for-cutting-fire-regulations-6713967/amp/">Government ministers ‘congratulated themselves’ for cutting fire regulations</a>
+<a href="http://metro.co.uk/2017/06/16/government-ministers-congratulated-themselves-for-cutting-fire-regulations-6713967/amp/">Government ministers ‘congratulated themselves’ for cutting fire regulations</a> <a href="https://archive.is/HYcI4">(archive)</a>
 <br>
 <a href="http://www.thelondoneconomic.com/tle-pick/revealed-privatisation-cuts-planned-uk-fire-brigade/05/06/">Revealed: UK Fire Brigade Slashed By Cuts And Failed Privatisation</a>
 <br>
