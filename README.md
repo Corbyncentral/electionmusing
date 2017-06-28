@@ -251,7 +251,7 @@ POLICE
 <br>
 <a href="https://www.theguardian.com/uk-news/2017/jun/06/police-cuts-hit-uk-fight-against-terrorism-says-former-security-chief">Police cuts hit UK fight against terrorism, says former security chief</a> <a href="https://archive.is/3cn3c">(archive)</a>
 <br>
-<a href="http://www.dailymail.co.uk/news/article-2167690/Police-station-closure-shock-One-shut-public-budget-cuts.html">Police station closed down? You'd better head to Tesco: As one in five shut their doors to cut costs</a>
+<a href="http://www.dailymail.co.uk/news/article-2167690/Police-station-closure-shock-One-shut-public-budget-cuts.html">Police station closed down? You'd better head to Tesco: As one in five shut their doors to cut costs</a> <a href="https://archive.is/0vBS6">(archive)</a>
 <br>
 <a href="https://www.theguardian.com/politics/2012/sep/06/home-secretary-police-outsourcing-g4s">Theresa May backs outsourcing despite G4S Olympic security fiasco</a>
 <br>
