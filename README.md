@@ -444,11 +444,11 @@ NASTY PARTY
 <br>
 <a href="http://www.manchestereveningnews.co.uk/news/greater-manchester-news/tory-councillor-charged-making-distributing-13194771">Former Tory councillor charged with making and distributing indecent images of children</a> <a href="https://archive.is/VE2Zq">(archive)</a>
 <br>
-<a href="http://www.mirror.co.uk/news/politics/why-not-vote-conservatives-election-10303180">Why should I not vote Conservative? 29 nasty policies you shouldn't forget in the 2017 general election</a>
+<a href="http://www.mirror.co.uk/news/politics/why-not-vote-conservatives-election-10303180">Why should I not vote Conservative? 29 nasty policies you shouldn't forget in the 2017 general election</a> <a href="https://archive.is/IIRuW">(archive)</a>
 <br>
-<a href="http://metro.co.uk/2017/06/11/tory-mp-calls-member-of-public-a-dck-for-mistakenly-calling-dup-deal-a-coalition-6701979/">Tory MP calls member of public a ‘d*ck’ for mistakenly calling DUP deal a coalition</a>
+<a href="http://metro.co.uk/2017/06/11/tory-mp-calls-member-of-public-a-dck-for-mistakenly-calling-dup-deal-a-coalition-6701979/">Tory MP calls member of public a ‘d*ck’ for mistakenly calling DUP deal a coalition</a> <a href="https://archive.is/tv9cw">(archive)</a>
 <br>
-<a href="http://www.thelondoneconomic.com/news/tory-councillor-who-donated-steam-from-his-piss-to-jo-coxs-memorial-fund-has-ban-doubled/14/12/amp/">Tory Councillor Who Donated “Steam From His Piss” To Jo Cox’s Memorial Fund Has Ban Doubled</a>
+<a href="http://www.thelondoneconomic.com/news/tory-councillor-who-donated-steam-from-his-piss-to-jo-coxs-memorial-fund-has-ban-doubled/14/12/amp/">Tory Councillor Who Donated “Steam From His Piss” To Jo Cox’s Memorial Fund Has Ban Doubled</a> <a href="https://archive.is/wD8eB">(archive)</a>
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/tory-mp-defends-faking-death-threat-over-syria-air-strikes-vote-a6764766.html">Tory MP admits adding 'death threat' to Facebook post over Syria air strikes vote</a>
 <br>
