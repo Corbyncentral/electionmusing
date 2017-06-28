@@ -481,17 +481,17 @@ ORGREAVE
 <br>
 INQUIRIES
 <br>
-<a href="http://www.bbc.co.uk/news/10146883">Initial Bloody Sunday inquiry labelled 'whitewash'</a>
+<a href="http://www.bbc.co.uk/news/10146883">Initial Bloody Sunday inquiry labelled 'whitewash'</a> <a href="https://archive.is/gx3cH">(archive)</a>
 <br>
-<a href="http://www.mirror.co.uk/news/uk-news/chilcot-inquiry-whitewash-fears-spies-7729937">Chilcot inquiry whitewash fears as spies ordered to vet the report</a>
+<a href="http://www.mirror.co.uk/news/uk-news/chilcot-inquiry-whitewash-fears-spies-7729937">Chilcot inquiry whitewash fears as spies ordered to vet the report</a> <a href="https://archive.is/vVCdv">(archive)</a>
 <br>
-<a href="http://www.mirror.co.uk/news/uk-news/paedophile-inquiry-whitewash-judge-said-1424184">Paedophile inquiry 'whitewash': Judge said Tory child sex abuse claims were “best forgotten”, claims former government lawyer</a>
+<a href="http://www.mirror.co.uk/news/uk-news/paedophile-inquiry-whitewash-judge-said-1424184">Paedophile inquiry 'whitewash': Judge said Tory child sex abuse claims were “best forgotten”, claims former government lawyer</a> <a href="https://archive.is/Defim">(archive)</a>
 <br>
-<a href="https://www.theguardian.com/commentisfree/2013/jun/25/politicians-inquiries-lawrence-get-out-jail">Politicians who demand inquiries should be taken out and shot</a>
+<a href="https://www.theguardian.com/commentisfree/2013/jun/25/politicians-inquiries-lawrence-get-out-jail">Politicians who demand inquiries should be taken out and shot</a> <a href="https://archive.is/yKSbe">(archive)</a>
 <br>
-<a href="https://www.theguardian.com/uk-news/2017/jun/15/theresa-may-announces-public-inquiry-into-grenfell-tower-fire">Theresa May announces public inquiry into Grenfell Tower fire</a>
+<a href="https://www.theguardian.com/uk-news/2017/jun/15/theresa-may-announces-public-inquiry-into-grenfell-tower-fire">Theresa May announces public inquiry into Grenfell Tower fire</a> <a href="https://archive.is/gMxIQ">(archive)</a>
 <br>
-<a href="http://www.independent.co.uk/news/uk/home-news/grenfell-fire-inquest-inquiry-theresa-may-faces-demands-whitewash-fears-latest-news-a7793866.html">Grenfell Tower fire: Thousands demand Theresa May hold inquest instead of inquiry amid 'whitewash' fears</a>
+<a href="http://www.independent.co.uk/news/uk/home-news/grenfell-fire-inquest-inquiry-theresa-may-faces-demands-whitewash-fears-latest-news-a7793866.html">Grenfell Tower fire: Thousands demand Theresa May hold inquest instead of inquiry amid 'whitewash' fears</a> <a href="https://web.archive.org/web/20170628221616/http://www.independent.co.uk/news/uk/home-news/grenfell-fire-inquest-inquiry-theresa-may-faces-demands-whitewash-fears-latest-news-a7793866.html">(archive)</a>
 <br>
 
 <br>
