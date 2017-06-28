@@ -163,7 +163,7 @@ THERESA MAY
 <br>
 <a href="https://www.thecanary.co/2017/05/11/we-took-a-look-at-theresa-mays-proud-record-in-government-its-shameful-video/">We took a look at Theresa May’s ‘proud record’ in government.It's shameful.</a> <a href="https://web.archive.org/web/20170628024745/https://www.thecanary.co/2017/05/11/we-took-a-look-at-theresa-mays-proud-record-in-government-its-shameful-video/">(archive)</a>
 <br>
-<a href="https://blogs.spectator.co.uk/2016/07/theresa-mays-record-home-secretary-isnt-reassuring/">Theresa May’s record as Home Secretary is alarming, not reassuring</a>
+<a href="https://blogs.spectator.co.uk/2016/07/theresa-mays-record-home-secretary-isnt-reassuring/">Theresa May’s record as Home Secretary is alarming, not reassuring [paywall]</a> <a href="https://archive.is/64JdD">(archive)</a>
 <br>
 <a href="http://www.independent.co.uk/voices/theresa-may-prime-minister-andrea-leadsom-policies-voting-record-human-rights-what-did-she-mean-a7130961.html">When you cross-reference Theresa May's speech with her voting record, it's as if she didn't mean anything she said</a>
 <br>
