@@ -112,7 +112,7 @@ ARMED FORCES
 <br>
 <a href="http://www.mirror.co.uk/news/uk-news/9000-ex-service-personnel-homeless-after-2071049">9,000 ex- service personnel homeless after leaving the military</a> <a href="https://archive.is/Dv9ED">(archive)</a>
 <br>
-<a href="https://www.ft.com/content/e0c896d8-20df-11e5-aa5a-398b2169cf79">RAF faces struggle to find extra firepower after cuts</a>
+<a href="https://www.ft.com/content/e0c896d8-20df-11e5-aa5a-398b2169cf79">RAF faces struggle to find extra firepower after cuts [paywall]</a>
 <br>
 <a href="https://www.theguardian.com/uk-news/2016/nov/21/royal-navy-risks-having-pathetically-low-total-of-ships-warn-mps">Royal Navy risks having 'pathetically low total' of ships</a>
 <br>
