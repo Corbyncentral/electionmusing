@@ -397,7 +397,7 @@ EMPLOYMENT
 <br>
 <a href="http://www.scriptonitedaily.com/2013/08/06/1-million-jobless-left-out-of-uk-govt-unemployment-figures/">Here is How the UK Govt Hid 1 million Jobless From Official Unemployment Figures</a> <a href="https://archive.is/2lLv9">(archive)</a>
 <br>
-<a href="http://www.independent.co.uk/news/uk/politics/dwp-benefit-cuts-jobcentre-closures-local-travel-costs-further-pcs-a7547351.html">Unemployed will be forced to travel further to sign on as DWP plans to close 78 local Jobcentres</a>
+<a href="http://www.independent.co.uk/news/uk/politics/dwp-benefit-cuts-jobcentre-closures-local-travel-costs-further-pcs-a7547351.html">Unemployed will be forced to travel further to sign on as DWP plans to close 78 local Jobcentres</a> <a href="https://web.archive.org/web/20170628195023/http://www.independent.co.uk/news/uk/politics/dwp-benefit-cuts-jobcentre-closures-local-travel-costs-further-pcs-a7547351.html">(archive)</a>
 <br>
 <a href="https://www.theguardian.com/commentisfree/2013/dec/19/zero-hours-contracts-vince-cable-crack-down-exploitation">It's not zero-hours contracts that are the problem, it's the bosses who abuse them</a>
 <br>
