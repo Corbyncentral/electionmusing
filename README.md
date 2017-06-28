@@ -289,7 +289,7 @@ LAW
 <br>
 FIRE
 <br>
-<a href="https://skwawkbox.org/2017/06/20/excl-fire-safety-expert-testsinspections-a-sham-millions-at-risk-grenfell-mustread/amp/">Excl: fire-safety expert ‘tests/inspections a sham’. Millions at risk #Grenfell #mustread</a>
+<a href="https://skwawkbox.org/2017/06/20/excl-fire-safety-expert-testsinspections-a-sham-millions-at-risk-grenfell-mustread/amp/">Excl: fire-safety expert ‘tests/inspections a sham’. Millions at risk #Grenfell #mustread</a> <a href="https://archive.is/C8U9f">(archive)</a>
 <br>
 <a href="http://www.independent.co.uk/voices/election-tories-labour-corbyn-fire-service-dangerous-cuts-a7773826.html">As a firefighter, I know that fire service cuts brought in by the Tories are just as dangerous as those to the police</a>
 <br>
