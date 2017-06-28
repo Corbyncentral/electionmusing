@@ -497,11 +497,11 @@ INQUIRIES
 <br>
 CONSERVATIVES AND THE PRESS
 <br>
-<a href="http://www.telegraph.co.uk/news/2017/05/18/tories-pledge-drop-leveson-part-two-investigation-corrupt-dealings/">Tories pledge to drop Leveson part two investigation into corrupt dealings between press and police</a>
+<a href="http://www.telegraph.co.uk/news/2017/05/18/tories-pledge-drop-leveson-part-two-investigation-corrupt-dealings/">Tories pledge to drop Leveson part two investigation into corrupt dealings between press and police</a> <a href="https://archive.is/upYRJ">(archive)</a>
 <br>
-<a href="http://www.telegraph.co.uk/news/politics/9668355/MPs-involved-in-scandals-accused-of-hypocrisy-over-calls-for-tougher-regulation-of-the-press.html?iframe=true&width=90%25&height=90%25">MPs involved in scandals accused of 'hypocrisy' over calls for tougher regulation of the press</a>
+<a href="http://www.telegraph.co.uk/news/politics/9668355/MPs-involved-in-scandals-accused-of-hypocrisy-over-calls-for-tougher-regulation-of-the-press.html?iframe=true&width=90%25&height=90%25">MPs involved in scandals accused of 'hypocrisy' over calls for tougher regulation of the press</a> <a href="https://archive.is/gfVz0">(archive)</a>
 <br>
-<a href="https://www.thecanary.co/2017/06/21/theresa-may-tried-bury-bombshell-britain-distracted-grief-now-might-blow-face/">Theresa May tried to bury this bombshell while Britain was distracted by grief. Now it might blow up in her face</a>
+<a href="https://www.thecanary.co/2017/06/21/theresa-may-tried-bury-bombshell-britain-distracted-grief-now-might-blow-face/">Theresa May tried to bury this bombshell while Britain was distracted by grief. Now it might blow up in her face</a> <a href="https://web.archive.org/web/20170628222915/https://www.thecanary.co/2017/06/21/theresa-may-tried-bury-bombshell-britain-distracted-grief-now-might-blow-face/">(archive)</a>
 <br>
 
 <br>
