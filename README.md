@@ -255,7 +255,7 @@ POLICE
 <br>
 <a href="https://www.theguardian.com/politics/2012/sep/06/home-secretary-police-outsourcing-g4s">Theresa May backs outsourcing despite G4S Olympic security fiasco</a> <a href="https://archive.is/5RoKc">(archive)</a>
 <br>
-<a href="http://www.bbc.co.uk/news/amp/40251124">Greater Manchester Police under real strain, says chief constable</a>
+<a href="http://www.bbc.co.uk/news/amp/40251124">Greater Manchester Police under real strain, says chief constable</a> <a href="https://archive.is/8nVDz">(archive)</a>
 <br>
 
 <br>
