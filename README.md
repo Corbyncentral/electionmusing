@@ -473,9 +473,9 @@ NASTY PARTY
 <br>
 ORGREAVE
 <br>
-<a href="https://www.theguardian.com/politics/2017/may/18/scandal-of-orgreave-miners-strike-hillsborough-theresa-may">The scandal of Orgreave</a>
+<a href="https://www.theguardian.com/politics/2017/may/18/scandal-of-orgreave-miners-strike-hillsborough-theresa-may">The scandal of Orgreave</a> <a href="https://archive.is/k3NeA">(archive)</a>
 <br>
-<a href="https://www.theguardian.com/politics/2016/oct/31/government-rules-out-orgreave-inquiry">Government rules out Orgreave inquiry</a>
+<a href="https://www.theguardian.com/politics/2016/oct/31/government-rules-out-orgreave-inquiry">Government rules out Orgreave inquiry</a> <a href="https://archive.is/C5LuJ">(archive)</a>
 <br>
 
 <br>
