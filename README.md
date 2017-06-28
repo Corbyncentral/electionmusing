@@ -511,11 +511,11 @@ CORRUPTION ALLEGATIONS
 <br>
 <a href="https://sleazeexpo.files.wordpress.com/2017/04/crux-votegate-quix-test-1-matrix-120-tory-expense-fraud-seats-which-police-are-investigating-dl-excel-sheet-1-1-april-2017-0345.xls">21 seats under investigation</a>
 <br>
-<a href="https://www.opendemocracy.net/uk/joel-benjamin/why-hsbc-s-indirect-donations-to-conservatives-and-buzzfeed-s-dismissal-as-conspira">Why HSBC’s indirect donations to the Conservatives (and Buzzfeed’s dismissal as a 'conspiracy') matters to our democracy</a>
+<a href="https://www.opendemocracy.net/uk/joel-benjamin/why-hsbc-s-indirect-donations-to-conservatives-and-buzzfeed-s-dismissal-as-conspira">Why HSBC’s indirect donations to the Conservatives (and Buzzfeed’s dismissal as a 'conspiracy') matters to our democracy</a> <a href="https://archive.is/CnftD">(archive)</a>
 <br>
-<a href="http://www.independent.co.uk/news/uk/politics/secrecy-over-public-spending-exposed-taxpayers-money-government-corruption-where-is-taxpayers-money-a7327186.html">‘Secrecy’ over public spending exposed by Transparency International report</a>
+<a href="http://www.independent.co.uk/news/uk/politics/secrecy-over-public-spending-exposed-taxpayers-money-government-corruption-where-is-taxpayers-money-a7327186.html">‘Secrecy’ over public spending exposed by Transparency International report</a> <a href="https://web.archive.org/web/20170628231829/http://www.independent.co.uk/news/uk/politics/secrecy-over-public-spending-exposed-taxpayers-money-government-corruption-where-is-taxpayers-money-a7327186.html">(archive)</a>
 <br>
-<a href="http://www.heraldscotland.com/news/15298376.Video__New_concerns_over_top_Tories__links_to_election_count_firm_as_warning_over_leaks_emerge/?ref=twtrec">New concerns over top Tories' links to election count firm as warning over leaks emerge</a>
+<a href="http://www.heraldscotland.com/news/15298376.Video__New_concerns_over_top_Tories__links_to_election_count_firm_as_warning_over_leaks_emerge/?ref=twtrec">New concerns over top Tories' links to election count firm as warning over leaks emerge</a> <a href="https://archive.is/7NzB4">(archive)</a>
 <br>
 <a href="https://thesecretbarrister.com/2017/05/10/myth-busting-the-tory-election-fraud-a-10-point-guide/">Myth-busting the “Tory election fraud” – A 10-point guide</a>
 <br>
