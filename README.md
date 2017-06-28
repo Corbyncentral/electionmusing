@@ -325,7 +325,7 @@ HOUSING
 <br>
 <a href="http://www.mirror.co.uk/news/uk-news/richest-mp-britain-slams-welfare-3178089">Richest MP in Britain slams welfare state but makes £120k a year in housing benefit</a> <a href="https://archive.is/uDqLX">(archive)</a>
 <br>
-<a href="http://www.mirror.co.uk/news/uk-news/homelessness-record-levels-numbers-rise-9688811">Homelessness at record levels as numbers rise at 'appalling rate' since Tories came to power</a>
+<a href="http://www.mirror.co.uk/news/uk-news/homelessness-record-levels-numbers-rise-9688811">Homelessness at record levels as numbers rise at 'appalling rate' since Tories came to power</a> <a href="https://archive.is/8AFcV">(archive)</a>
 <br>
 <a href="http://www.huffingtonpost.co.uk/entry/house-building-tories-labour-healey_uk_5910b87ce4b0d5d9049eb915">House Building Under The Tories Drops To Lowest Level Since The 1920s</a>
 <br>
