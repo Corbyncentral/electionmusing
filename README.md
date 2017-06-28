@@ -450,7 +450,7 @@ NASTY PARTY
 <br>
 <a href="http://www.thelondoneconomic.com/news/tory-councillor-who-donated-steam-from-his-piss-to-jo-coxs-memorial-fund-has-ban-doubled/14/12/amp/">Tory Councillor Who Donated “Steam From His Piss” To Jo Cox’s Memorial Fund Has Ban Doubled</a> <a href="https://archive.is/wD8eB">(archive)</a>
 <br>
-<a href="http://www.independent.co.uk/news/uk/politics/tory-mp-defends-faking-death-threat-over-syria-air-strikes-vote-a6764766.html">Tory MP admits adding 'death threat' to Facebook post over Syria air strikes vote</a>
+<a href="http://www.independent.co.uk/news/uk/politics/tory-mp-defends-faking-death-threat-over-syria-air-strikes-vote-a6764766.html">Tory MP admits adding 'death threat' to Facebook post over Syria air strikes vote</a> <a href="https://web.archive.org/web/20170628205933/http://www.independent.co.uk/news/uk/politics/tory-mp-defends-faking-death-threat-over-syria-air-strikes-vote-a6764766.html">(archive)</a>
 <br>
 <a href="http://www.standard.co.uk/news/politics/tories-rocked-by-new-bullying-storm-as-mp-lucy-allan-accused-of-vicious-abuse-of-sick-staff-member-a3139526.html">Tories rocked by new 'bullying' storm as MP Lucy Allan accused of 'vicious' abuse of sick staff member</a>
 <br>
