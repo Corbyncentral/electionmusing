@@ -339,7 +339,7 @@ ENVIRONMENT
 <br>
 <a href="http://www.telegraph.co.uk/news/earth/energy/fracking/12054726/MPs-clear-the-way-for-fracking-to-start-under-National-Parks.html">MPs clear the way for fracking to start under National Park</a> <a href="https://archive.is/3K15f">(archive)</a>
 <br>
-<a href="http://www.independent.co.uk/news/uk/politics/george-osborne-reveals-50-tax-break-for-fracking-firms-8718711.html">George Osborne reveals 50% tax break for fracking firms</a>
+<a href="http://www.independent.co.uk/news/uk/politics/george-osborne-reveals-50-tax-break-for-fracking-firms-8718711.html">George Osborne reveals 50% tax break for fracking firms</a> <a href="https://web.archive.org/web/20170628174700/http://www.independent.co.uk/news/uk/politics/george-osborne-reveals-50-tax-break-for-fracking-firms-8718711.html">(archive)</a>
 <br>
 <a href="https://www.theguardian.com/environment/2017/apr/25/government-delay-air-pollution-plan-due-to-election-dishonest">Tories 'on very dodgy ground' over delay of air pollution plan, say experts</a>
 <br>
