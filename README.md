@@ -124,7 +124,7 @@ IRA
 <br>
 <a href="http://www.belfasttelegraph.co.uk/sunday-life/conservative-club-honours-ira-bomber-gerry-mcgivern-by-lowering-union-flag-to-half-mast-34357680.html">Conservative Club honours IRA bomber Gerry McGivern by lowering Union flag to half mast</a> <a href="https://archive.is/pQvhj">(archive)</a>
 <br>
-<a href="http://evolvepolitics.com/realise-current-conservative-politician-literally-member-ira-right/">You do realise that a current SERVING Conservative politician was literally a MEMBER of the IRA, right?</a>
+<a href="http://evolvepolitics.com/realise-current-conservative-politician-literally-member-ira-right/">You do realise that a current SERVING Conservative politician was literally a MEMBER of the IRA, right?</a> <a href="https://archive.is/0fsJE">(archive)</a>
 <br>
 <a href="http://anotherangryvoice.blogspot.co.uk/2017/04/the-absurd-ira-hypocrisyof-right-wing.html">The searing hypocrisy of the right-wing "Corbyn talked to the IRA" brigade</a>
 <br>
