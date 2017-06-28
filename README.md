@@ -347,7 +347,7 @@ ENVIRONMENT
 <br>
 <a href="http://www.independent.co.uk/environment/climate-change-department-killed-off-by-theresa-may-in-plain-stupid-and-deeply-worrying-move-a7137166.html">Climate change department closed by Theresa May in 'plain stupid' and 'deeply worrying' move</a> <a href="https://web.archive.org/web/20170628175713/http://www.independent.co.uk/environment/climate-change-department-killed-off-by-theresa-may-in-plain-stupid-and-deeply-worrying-move-a7137166.html">(archive)</a>
 <br>
-<a href="https://amp.theguardian.com/environment/blog/2015/feb/17/privatisation-uk-woodlands-happening-by-backdoor">Privatisation of UK woodlands is happening by the backdoor</a>
+<a href="https://amp.theguardian.com/environment/blog/2015/feb/17/privatisation-uk-woodlands-happening-by-backdoor">Privatisation of UK woodlands is happening by the backdoor</a> <a href="https://archive.is/wVMVz">(archive)</a>
 <br>
 <a href="https://www.theguardian.com/environment/2016/jan/02/tory-cuts-wrecking-uk-flood-defences">Revealed: how Tory cuts are wrecking UK flood defences</a>
 <br>
