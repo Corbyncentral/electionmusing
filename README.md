@@ -393,7 +393,7 @@ EMPLOYMENT
 <br>
 <a href="http://www.independent.co.uk/voices/tories-employment-statistics-unemployment-general-election-jobs-reality-different-a7726666.html">The Tories will tell you they're the party that gives the nation proper employment – but even their advisers don't agree</a> <a href="https://web.archive.org/web/20170628191456/http://www.independent.co.uk/voices/tories-employment-statistics-unemployment-general-election-jobs-reality-different-a7726666.html">(archive)</a>
 <br>
-<a href="http://www.independent.co.uk/news/uk/politics/dwp-fit-to-work-assessments-cost-more-than-they-save-report-reveals-a6801636.html">DWP fit-to-work assessments cost more money than they save, report reveals</a>
+<a href="http://www.independent.co.uk/news/uk/politics/dwp-fit-to-work-assessments-cost-more-than-they-save-report-reveals-a6801636.html">DWP fit-to-work assessments cost more money than they save, report reveals</a> <a href="https://web.archive.org/web/20170628194319/http://www.independent.co.uk/news/uk/politics/dwp-fit-to-work-assessments-cost-more-than-they-save-report-reveals-a6801636.html">(archive)</a>
 <br>
 <a href="http://www.scriptonitedaily.com/2013/08/06/1-million-jobless-left-out-of-uk-govt-unemployment-figures/">Here is How the UK Govt Hid 1 million Jobless From Official Unemployment Figures</a>
 <br>
