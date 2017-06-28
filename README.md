@@ -329,7 +329,7 @@ HOUSING
 <br>
 <a href="http://www.huffingtonpost.co.uk/entry/house-building-tories-labour-healey_uk_5910b87ce4b0d5d9049eb915">House Building Under The Tories Drops To Lowest Level Since The 1920s</a> <a href="https://archive.is/dvfb2">(archive)</a>
 <br>
-<a href="https://amp.ibtimes.co.uk/tory-landlords-running-this-country-have-clear-conflict-interest-when-it-comes-keeping-people-1626603">The Tory landlords running this country have a clear conflict of interest when it comes to keeping people safe</a>
+<a href="https://amp.ibtimes.co.uk/tory-landlords-running-this-country-have-clear-conflict-interest-when-it-comes-keeping-people-1626603">The Tory landlords running this country have a clear conflict of interest when it comes to keeping people safe</a> <a href="https://archive.is/2arR2">(archive)</a>
 <br>
 <a href="http://www.independent.co.uk/news/uk/home-news/social-housing-government-funded-properties-rent-falls-97-per-cent-study-homes-communities-agency-a7799116.html">Number of government-funded social homes falls by 97% since Conservatives took office</a>
 <br>
