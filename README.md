@@ -281,7 +281,7 @@ LAW
 <br>
 <a href="https://www.theguardian.com/law/2017/apr/10/cuts-legal-aid-for-prisoners-unlawful-court-of-appeal">Cuts to legal aid for prisoners ruled unlawful</a> <a href="https://archive.is/iCbsP">(archive)</a>
 <br>
-<a href="https://www.theguardian.com/money/2017/jan/31/employment-tribunal-cases-down-70-since-fees-introduced">Unions blame 70% fall in employment tribunal cases on fees</a>
+<a href="https://www.theguardian.com/money/2017/jan/31/employment-tribunal-cases-down-70-since-fees-introduced">Unions blame 70% fall in employment tribunal cases on fees</a> <a href="https://archive.is/Bn5Fj">(archive)</a>
 <br>
 <a href="https://www.theguardian.com/law/2013/mar/04/secret-court-hearing-plans-government">Secret court hearing plans pushed through by government</a>
 <br>
