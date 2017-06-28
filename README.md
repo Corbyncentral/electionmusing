@@ -161,7 +161,7 @@ THERESA MAY
 <br>
 <a href="http://anotherangryvoice.blogspot.co.uk/2017/05/theresa-mays-extraordinary-facebook.html?m=1">Theresa May's extraordinary Facebook meltdown</a> <a href="https://archive.is/KSHCr">(archive)</a>
 <br>
-<a href="https://www.thecanary.co/2017/05/11/we-took-a-look-at-theresa-mays-proud-record-in-government-its-shameful-video/">We took a look at Theresa May’s ‘proud record’ in government.It's shameful.</a>
+<a href="https://www.thecanary.co/2017/05/11/we-took-a-look-at-theresa-mays-proud-record-in-government-its-shameful-video/">We took a look at Theresa May’s ‘proud record’ in government.It's shameful.</a> <a href="https://web.archive.org/web/20170628024745/https://www.thecanary.co/2017/05/11/we-took-a-look-at-theresa-mays-proud-record-in-government-its-shameful-video/">(archive)</a>
 <br>
 <a href="https://blogs.spectator.co.uk/2016/07/theresa-mays-record-home-secretary-isnt-reassuring/">Theresa May’s record as Home Secretary is alarming, not reassuring</a>
 <br>
