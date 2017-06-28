@@ -462,7 +462,7 @@ NASTY PARTY
 <br>
 <a href="https://www.thesun.co.uk/archives/politics/766019/sex-drugs-booze-blackmail-bullying-suicide-scandal-which-is-rocking-tories/">Sex, drugs, booze, blackmail, bullying & suicide scandal which is rocking Tories</a> <a href="https://archive.is/Pd1tS">(archive)</a>
 <br>
-<a href="http://www.telegraph.co.uk/comment/11893698/Hinkley-a-truly-major-national-scandal.html">Hinkley: a truly major national scandal</a>
+<a href="http://www.telegraph.co.uk/comment/11893698/Hinkley-a-truly-major-national-scandal.html">Hinkley: a truly major national scandal</a> <a href="https://archive.is/8T66O">(archive)</a>
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/grenfell-tower-fire-latest-conservative-politician-offensive-tweet-uproar-theresa-may-hitler-a7802571.html?amp">Grenfell Tower fire: Tory politician defends motivations behind 'offensive' Hitler tweet</a>
 <br>
