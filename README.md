@@ -215,7 +215,7 @@ AUSTERITY/WELFARE
 <br>
 <a href="http://www.independent.co.uk/voices/conservatives-chancellor-george-osborne-ideology-austerity-economics-working-families-a7787776.html">Yes this really is the end of Tory austerity – because it was never about economics in the first place</a> <a href="https://web.archive.org/web/20170628041411/http://www.independent.co.uk/voices/conservatives-chancellor-george-osborne-ideology-austerity-economics-working-families-a7787776.html">(archive)</a>
 <br>
-<a href="https://www.opendemocracy.net/5050/heather-mcrobie/austerity-policies-in-europe-are-fuelling-social-injustice-and-violating-human-">Austerity policies in Europe are fuelling social injustice - and violating human rights</a>
+<a href="https://www.opendemocracy.net/5050/heather-mcrobie/austerity-policies-in-europe-are-fuelling-social-injustice-and-violating-human-">Austerity policies in Europe are fuelling social injustice - and violating human rights</a> <a href="https://archive.is/l9cSi">(archive)</a>
 <br>
 <a href="https://www.research.manchester.ac.uk/portal/files/30943451/FULL_TEXT.PDF">Reinforcing neoliberalism: crisis and austerity in the UK</a>
 <br>
