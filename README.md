@@ -307,7 +307,7 @@ FIRE
 <br>
 <a href="http://metro.co.uk/2017/06/16/government-ministers-congratulated-themselves-for-cutting-fire-regulations-6713967/amp/">Government ministers ‘congratulated themselves’ for cutting fire regulations</a> <a href="https://archive.is/HYcI4">(archive)</a>
 <br>
-<a href="http://www.thelondoneconomic.com/tle-pick/revealed-privatisation-cuts-planned-uk-fire-brigade/05/06/">Revealed: UK Fire Brigade Slashed By Cuts And Failed Privatisation</a>
+<a href="http://www.thelondoneconomic.com/tle-pick/revealed-privatisation-cuts-planned-uk-fire-brigade/05/06/">Revealed: UK Fire Brigade Slashed By Cuts And Failed Privatisation</a> <a href="https://archive.is/Db6xA">(archive)</a>
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/government-criticised-over-quietly-abandoning-requirement-for-new-schools-to-install-fire-sprinklers-a7219276.html">Government criticised over quietly abandoning requirement for new schools to install fire sprinkler systems</a>
 <br>
