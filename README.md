@@ -345,7 +345,7 @@ ENVIRONMENT
 <br>
 <a href="https://www.theguardian.com/environment/2015/jul/24/the-9-green-policies-killed-off-by-tory-government">The nine green policies killed off by the Tory government</a> <a href="https://archive.is/CjlfL">(archive)</a>
 <br>
-<a href="http://www.independent.co.uk/environment/climate-change-department-killed-off-by-theresa-may-in-plain-stupid-and-deeply-worrying-move-a7137166.html">Climate change department closed by Theresa May in 'plain stupid' and 'deeply worrying' move</a>
+<a href="http://www.independent.co.uk/environment/climate-change-department-killed-off-by-theresa-may-in-plain-stupid-and-deeply-worrying-move-a7137166.html">Climate change department closed by Theresa May in 'plain stupid' and 'deeply worrying' move</a> <a href="https://web.archive.org/web/20170628175713/http://www.independent.co.uk/environment/climate-change-department-killed-off-by-theresa-may-in-plain-stupid-and-deeply-worrying-move-a7137166.html">(archive)</a>
 <br>
 <a href="https://amp.theguardian.com/environment/blog/2015/feb/17/privatisation-uk-woodlands-happening-by-backdoor">Privatisation of UK woodlands is happening by the backdoor</a>
 <br>
