@@ -235,7 +235,7 @@ DISABILITY
 <br>
 <a href="http://www.disabilitynewsservice.com/shadow-chancellor-backs-calls-to-prosecute-iain-duncan-smith-over-wca-deaths/">Shadow chancellor backs calls to prosecute Iain Duncan Smith over WCA deaths</a> <a href="https://archive.is/Q0Wsk">(archive)</a>
 <br>
-<a href="http://anotherangryvoice.blogspot.co.uk/2012/11/iain-duncan-smiths-callous-disrespect.html">Iain Duncan Smith's callous contempt for the dead</a>
+<a href="http://anotherangryvoice.blogspot.co.uk/2012/11/iain-duncan-smiths-callous-disrespect.html">Iain Duncan Smith's callous contempt for the dead</a> <a href="https://archive.is/nEaSb">(archive)</a>
 <br>
 <a href="http://www.mirror.co.uk/news/uk-news/sorry-isnt-good-enough-government-10647512.amp">'Sorry isn't good enough': Government apologises to family of disabled mum-of-nine who took her own life 'as benefits were stopped'</a>
 <br>
