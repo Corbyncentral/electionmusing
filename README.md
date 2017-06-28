@@ -239,7 +239,7 @@ DISABILITY
 <br>
 <a href="http://www.mirror.co.uk/news/uk-news/sorry-isnt-good-enough-government-10647512.amp">'Sorry isn't good enough': Government apologises to family of disabled mum-of-nine who took her own life 'as benefits were stopped'</a> <a href="https://archive.is/Gp44F">(archive)</a>
 <br>
-<a href="http://www.independent.co.uk/news/uk/politics/fit-to-work-wca-tests-mental-health-dwp-work-capability-assessment-benefits-esa-pip-a7623686.html">DWP’s fit-to-work tests ‘cause permanent damage to mental health’, study finds</a>
+<a href="http://www.independent.co.uk/news/uk/politics/fit-to-work-wca-tests-mental-health-dwp-work-capability-assessment-benefits-esa-pip-a7623686.html">DWP’s fit-to-work tests ‘cause permanent damage to mental health’, study finds</a> <a href="https://web.archive.org/web/20170628141332/http://www.independent.co.uk/news/uk/politics/fit-to-work-wca-tests-mental-health-dwp-work-capability-assessment-benefits-esa-pip-a7623686.html">(archive)</a>
 <br>
 
 <br>
