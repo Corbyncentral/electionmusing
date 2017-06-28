@@ -375,7 +375,7 @@ IMMIGRATION
 <br>
 RIGHT WING
 <br>
-<a href="http://www.independent.co.uk/news/uk/politics/tory-voters-more-right-wing-ukip-poll-latest-theresa-may-nigel-farage-a7737491.html">Tory voters think their party is now more right-wing than Ukip, poll finds</a>
+<a href="http://www.independent.co.uk/news/uk/politics/tory-voters-more-right-wing-ukip-poll-latest-theresa-may-nigel-farage-a7737491.html">Tory voters think their party is now more right-wing than Ukip, poll finds</a> <a href="https://web.archive.org/web/20170628185550/http://www.independent.co.uk/news/uk/politics/tory-voters-more-right-wing-ukip-poll-latest-theresa-may-nigel-farage-a7737491.html">(archive)</a>
 <br>
 <a href="http://www.newstatesman.com/politics/uk/2017/03/theresa-may-delivering-ukip-2015-manifesto">May is delivering the Ukip 2015 manifesto</a>
 <br>
