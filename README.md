@@ -57,7 +57,7 @@ JEREMY CORBYN
 <br>
 <a href="https://www.theguardian.com/music/2017/jun/16/jeremy-corbyn-pyramid-stage-glastonbury-festival-2017">Jeremy Corbyn to appear on Pyramid stage at Glastonbury festival 2017</a> <a href="https://archive.is/pnbpn">(archive)</a>
 <br>
-<a href="https://www.opendemocracy.net/luke-davies/re-examining-corbyns-dangerous-friendships">We need to re-examine Corbyn's so-called 'dangerous friendships'</a>
+<a href="https://www.opendemocracy.net/luke-davies/re-examining-corbyns-dangerous-friendships">We need to re-examine Corbyn's so-called 'dangerous friendships'</a> <a href="https://archive.is/yCvsw">(archive)</a>
 <br>
 <a href="http://www.thelondoneconomic.com/tle-pick/think-jeremy-corbyn-is-a-loser-oh-dear-youve-been-brainwashed/18/08/">Think Jeremy Corbyn is a loser, oh dear, you've been brainwashed</a>
 <br>
