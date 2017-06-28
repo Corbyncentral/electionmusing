@@ -299,7 +299,7 @@ FIRE
 <br>
 <a href="https://www.thecanary.co/2017/06/15/rapper-akala-smashes-biggest-lie-grenfell-disaster-whole-country-see-video/">Rapper Akala smashes the biggest lie about the Grenfell disaster, for the whole country to see</a> <a href="https://web.archive.org/web/20170628162722/https://www.thecanary.co/2017/06/15/rapper-akala-smashes-biggest-lie-grenfell-disaster-whole-country-see-video/">(archive)</a>
 <br>
-<a href="https://www.theguardian.com/uk-news/2017/jun/15/experts-warned-government-against-cladding-material-used-on-grenfell">Experts warned government against cladding material used on Grenfell</a>
+<a href="https://www.theguardian.com/uk-news/2017/jun/15/experts-warned-government-against-cladding-material-used-on-grenfell">Experts warned government against cladding material used on Grenfell</a> <a href="https://archive.is/oIEJT">(archive)</a>
 <br>
 <a href="http://uk.businessinsider.com/gavin-barwell-under-fire-for-delaying-report-into-fire-safety-as-housing-minister-2017-6">Theresa May's new chief of staff 'sat on' a review of fire safety in tower blocks like Grenfell Tower</a>
 <br>
