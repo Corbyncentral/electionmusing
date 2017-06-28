@@ -391,7 +391,7 @@ RIGHT WING
 <br>
 EMPLOYMENT
 <br>
-<a href="http://www.independent.co.uk/voices/tories-employment-statistics-unemployment-general-election-jobs-reality-different-a7726666.html">The Tories will tell you they're the party that gives the nation proper employment – but even their advisers don't agree</a>
+<a href="http://www.independent.co.uk/voices/tories-employment-statistics-unemployment-general-election-jobs-reality-different-a7726666.html">The Tories will tell you they're the party that gives the nation proper employment – but even their advisers don't agree</a> <a href="https://web.archive.org/web/20170628191456/http://www.independent.co.uk/voices/tories-employment-statistics-unemployment-general-election-jobs-reality-different-a7726666.html">(archive)</a>
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/dwp-fit-to-work-assessments-cost-more-than-they-save-report-reveals-a6801636.html">DWP fit-to-work assessments cost more money than they save, report reveals</a>
 <br>
