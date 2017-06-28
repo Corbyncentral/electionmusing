@@ -301,7 +301,7 @@ FIRE
 <br>
 <a href="https://www.theguardian.com/uk-news/2017/jun/15/experts-warned-government-against-cladding-material-used-on-grenfell">Experts warned government against cladding material used on Grenfell</a> <a href="https://archive.is/oIEJT">(archive)</a>
 <br>
-<a href="http://uk.businessinsider.com/gavin-barwell-under-fire-for-delaying-report-into-fire-safety-as-housing-minister-2017-6">Theresa May's new chief of staff 'sat on' a review of fire safety in tower blocks like Grenfell Tower</a>
+<a href="http://uk.businessinsider.com/gavin-barwell-under-fire-for-delaying-report-into-fire-safety-as-housing-minister-2017-6">Theresa May's new chief of staff 'sat on' a review of fire safety in tower blocks like Grenfell Tower</a> <a href="https://archive.is/bcuvA">(archive)</a>
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/brexit-safety-standards-workers-rights-jacob-rees-mogg-a7459336.html">Britain could slash environmental and safety standards 'a very long way' after Brexit, Tory MP Jacob Rees-Mogg says</a>
 <br>
