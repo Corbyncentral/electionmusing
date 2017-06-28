@@ -213,7 +213,7 @@ AUSTERITY/WELFARE
 <br>
 <a href="https://www.theguardian.com/business/ng-interactive/2015/apr/29/the-austerity-delusion">The austerity delusion</a> <a href="https://archive.is/krOVD">(archive)</a>
 <br>
-<a href="http://www.independent.co.uk/voices/conservatives-chancellor-george-osborne-ideology-austerity-economics-working-families-a7787776.html">Yes this really is the end of Tory austerity – because it was never about economics in the first place</a>
+<a href="http://www.independent.co.uk/voices/conservatives-chancellor-george-osborne-ideology-austerity-economics-working-families-a7787776.html">Yes this really is the end of Tory austerity – because it was never about economics in the first place</a> <a href="https://web.archive.org/web/20170628041411/http://www.independent.co.uk/voices/conservatives-chancellor-george-osborne-ideology-austerity-economics-working-families-a7787776.html">(archive)</a>
 <br>
 <a href="https://www.opendemocracy.net/5050/heather-mcrobie/austerity-policies-in-europe-are-fuelling-social-injustice-and-violating-human-">Austerity policies in Europe are fuelling social injustice - and violating human rights</a>
 <br>
