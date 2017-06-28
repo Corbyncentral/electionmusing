@@ -137,7 +137,7 @@ DUP
 <br>
 <a href="http://metro.co.uk/2017/06/09/tories-to-form-coalition-government-with-anti-gay-marriage-dup-6697769/">Tories to form government with DUP – which has links to terrorism</a> <a href="https://archive.is/wjcVP">(archive)</a>
 <br>
-<a href="http://www.essay.uk.com/free-essays/history/paramilitary-forces-in-northern-ireland.php">Paramilitary forces in Northern Ireland</a>
+<a href="http://www.essay.uk.com/free-essays/history/paramilitary-forces-in-northern-ireland.php">Paramilitary forces in Northern Ireland</a> <a href="https://archive.is/g6uDp">(archive)</a>
 <br>
 <a href="http://www.irishtimes.com/news/environment/q-a-what-is-the-northern-ireland-cash-for-ash-scheme-1.2907866">Q&A: What is the Northern Ireland ‘cash for ash’ scheme?</a>
 <br>
