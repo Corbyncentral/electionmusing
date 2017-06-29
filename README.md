@@ -594,15 +594,15 @@ BREXIT
 <br>
 <a href="http://www.independent.co.uk/voices/global-laundromat-money-laundering-panama-papers-more-scandals-a7644481.html">Brexit will only mean more money laundering scandals like ‘Global Laundromat’</a> <a href="https://web.archive.org/web/20170629142408/http://www.independent.co.uk/voices/global-laundromat-money-laundering-panama-papers-more-scandals-a7644481.html">(archive)</a>
 <br>
-<a href="https://www.theguardian.com/commentisfree/2017/apr/04/brutal-regimes-tory-brexit-eu-theresa-may-saudi-arabia-terror">This is what Brexit looks like: cosying up to brutal regimes</a>
+<a href="https://www.theguardian.com/commentisfree/2017/apr/04/brutal-regimes-tory-brexit-eu-theresa-may-saudi-arabia-terror">This is what Brexit looks like: cosying up to brutal regimes</a> <a href="https://archive.is/A4UYc">(archive)</a>
 <br>
-<a href="http://www.independent.co.uk/news/uk/politics/brexit-talks-opening-position-papers-government-yet-to-send-submit-latest-news-a7792531.html">Brexit talks: Government yet to submit opening positions despite EU negotiations being days away</a>
+<a href="http://www.independent.co.uk/news/uk/politics/brexit-talks-opening-position-papers-government-yet-to-send-submit-latest-news-a7792531.html">Brexit talks: Government yet to submit opening positions despite EU negotiations being days away</a> <a href="https://web.archive.org/web/20170629143132/http://www.independent.co.uk/news/uk/politics/brexit-talks-opening-position-papers-government-yet-to-send-submit-latest-news-a7792531.html">(archive)</a>
 <br>
-<a href="https://www.theguardian.com/commentisfree/2017/apr/01/great-repeal-bill-henry-viii-britain-eu-government">The great repeal bill will give the Tories a free hand. And we can only watch</a>
+<a href="https://www.theguardian.com/commentisfree/2017/apr/01/great-repeal-bill-henry-viii-britain-eu-government">The great repeal bill will give the Tories a free hand. And we can only watch</a> <a href="https://archive.is/UZ2gq">(archive)</a>
 <br>
-<a href="http://www.independent.co.uk/voices/brexit-great-repeal-bill-eu-rights-and-protections-bill-you-should-be-worried-a7705286.html">Don't worry about Brexit – worry about the Great Repeal Bill that comes after it</a>
+<a href="http://www.independent.co.uk/voices/brexit-great-repeal-bill-eu-rights-and-protections-bill-you-should-be-worried-a7705286.html">Don't worry about Brexit – worry about the Great Repeal Bill that comes after it</a> <a href="https://web.archive.org/web/20170629143424/http://www.independent.co.uk/voices/brexit-great-repeal-bill-eu-rights-and-protections-bill-you-should-be-worried-a7705286.html">(archive)</a>
 <br>
-<a href="http://www.independent.co.uk/news/business/news/bank-of-england-mark-carney-boris-johnson-brexit-britain-worse-off-a7798551.html">Brexit will make Britain worse off, Bank of England Governor Mark Carney says</a>
+<a href="http://www.independent.co.uk/news/business/news/bank-of-england-mark-carney-boris-johnson-brexit-britain-worse-off-a7798551.html">Brexit will make Britain worse off, Bank of England Governor Mark Carney says</a> <a href="https://web.archive.org/web/20170629143605/http://www.independent.co.uk/news/business/news/bank-of-england-mark-carney-boris-johnson-brexit-britain-worse-off-a7798551.html">(archive)</a>
 <br>
 <a href="http://voxpoliticalonline.com/2016/05/21/priti-patel-admits-leave-campaign-agenda-to-reduce-workers-rights-tuc/">Priti Patel admits Leave campaign agenda to reduce workers’ rights – TUC</a>
 <br>
