@@ -559,17 +559,17 @@ NHS
 <br>
 <a href="http://www.mirror.co.uk/news/politics/what-naylor-report-everything-explained-10543351">What is the Naylor Report? A summary of the plans behind Theresa May's big NHS property sell-off</a> <a href="https://archive.is/0VNRl">(archive)</a>
 <br>
-<a href="https://www.theguardian.com/society/2017/jun/16/most-of-central-london-hospital-to-be-sold-off-secret-plans-reveal">Most of central London hospital to be sold off, plans reveal</a>
+<a href="https://www.theguardian.com/society/2017/jun/16/most-of-central-london-hospital-to-be-sold-off-secret-plans-reveal">Most of central London hospital to be sold off, plans reveal</a> <a href="https://archive.is/Kwbhv">(archive)</a>
 <br>
-<a href="http://evolvepolitics.com/plans-reveal-another-hospital-sold-off-tories/amp/">Plans reveal ANOTHER hospital to be sold off under the Tories in devastating blow to our emergency services.</a>
+<a href="http://evolvepolitics.com/plans-reveal-another-hospital-sold-off-tories/amp/">Plans reveal ANOTHER hospital to be sold off under the Tories in devastating blow to our emergency services.</a> <a href="https://archive.is/PJukY">(archive)</a>
 <br>
-<a href="https://amp.theguardian.com/society/2015/apr/25/far-more-nhs-contracts-going-to-private-firms-than-ministers-admit-privatisation">Far more NHS contracts going to private firms than ministers admit, figures show</a>
+<a href="https://amp.theguardian.com/society/2015/apr/25/far-more-nhs-contracts-going-to-private-firms-than-ministers-admit-privatisation">Far more NHS contracts going to private firms than ministers admit, figures show</a> <a href="https://archive.is/ugNYo">(archive)</a>
 <br>
-<a href="http://www.birminghammail.co.uk/news/midlands-news/theresa-backtracks-pledge-recruit-10000-13216129.amp">Theresa May backtracks on pledge to recruit 10,000 more mental health staff</a>
+<a href="http://www.birminghammail.co.uk/news/midlands-news/theresa-backtracks-pledge-recruit-10000-13216129.amp">Theresa May backtracks on pledge to recruit 10,000 more mental health staff</a> <a href="https://archive.is/W17pP">(archive)</a>
 <br>
-<a href="http://www.independent.co.uk/news/health/nhs-latest-senior-doctors-hospitals-underfunding-accelerate-privatisation-agenda-conservative-a7808591.html?amp">Senior doctors accuse Government of deliberately underfunding NHS to accelerate privatisation plans</a>
+<a href="http://www.independent.co.uk/news/health/nhs-latest-senior-doctors-hospitals-underfunding-accelerate-privatisation-agenda-conservative-a7808591.html?amp">Senior doctors accuse Government of deliberately underfunding NHS to accelerate privatisation plans</a> <a href="https://web.archive.org/web/20170629010050/http://www.independent.co.uk/news/health/nhs-latest-senior-doctors-hospitals-underfunding-accelerate-privatisation-agenda-conservative-a7808591.html?amp">(archive)</a>
 <br>
-<a href="http://www.independent.co.uk/voices/northern-ireland-dup-theresa-may-jeremy-hunt-nhs-cuts-secret-whistleblower-austerity-a7810066.html?amp">As Northern Ireland is handed £1bn by Theresa May, Jeremy Hunt is sneaking in a fresh round of brutal NHS cuts</a>
+<a href="http://www.independent.co.uk/voices/northern-ireland-dup-theresa-may-jeremy-hunt-nhs-cuts-secret-whistleblower-austerity-a7810066.html?amp">As Northern Ireland is handed £1bn by Theresa May, Jeremy Hunt is sneaking in a fresh round of brutal NHS cuts</a> <a href="https://web.archive.org/web/20170629010155/http://www.independent.co.uk/voices/northern-ireland-dup-theresa-may-jeremy-hunt-nhs-cuts-secret-whistleblower-austerity-a7810066.html?amp">(archive)</a>
 <br>
 
 <br>
