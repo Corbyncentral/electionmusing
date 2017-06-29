@@ -618,15 +618,15 @@ PANAMA PAPERS AND TAXATION
 <br>
 <a href="http://www.telegraph.co.uk/news/2016/05/09/panama-papers-full-database-revealed/">Panama Papers database dump reveals 200,000 secret offshore account details</a> <a href="https://archive.is/Gi5aq">(archive)</a>
 <br>
-<a href="https://www.vice.com/en_uk/article/8gkyv3/why-you-should-care-about-panama-papers-mossack-fonseca">Here's Why You Should Give a Sh*t About the Panama Papers</a>
+<a href="https://www.vice.com/en_uk/article/8gkyv3/why-you-should-care-about-panama-papers-mossack-fonseca">Here's Why You Should Give a Sh*t About the Panama Papers</a> <a href="https://web.archive.org/web/20170629152356/https://www.vice.com/en_uk/article/8gkyv3/why-you-should-care-about-panama-papers-mossack-fonseca">(archive)</a>
 <br>
 <a href="https://panamapapers.icij.org">The International Consortium of Investigative Journalists: The Panama Papers</a>
 <br>
-<a href="https://amp.theguardian.com/world/2017/jun/01/super-rich-evade-on-average-nearly-third-of-their-due-tax">Super-rich evade on average nearly third of their due tax</a>
+<a href="https://amp.theguardian.com/world/2017/jun/01/super-rich-evade-on-average-nearly-third-of-their-due-tax">Super-rich evade on average nearly third of their due tax</a> <a href="https://archive.is/QIklg">(archive)</a>
 <br>
-<a href="http://www.independent.co.uk/news/uk/politics/these-are-the-british-meps-who-voted-against-plans-to-crack-down-on-corporate-tax-evasion-a6982271.html?amp">These are the British MEPs who voted against plans to crack down on corporate tax dodging</a>
+<a href="http://www.independent.co.uk/news/uk/politics/these-are-the-british-meps-who-voted-against-plans-to-crack-down-on-corporate-tax-evasion-a6982271.html?amp">These are the British MEPs who voted against plans to crack down on corporate tax dodging</a> <a href="https://web.archive.org/web/20170629152638/http://www.independent.co.uk/news/uk/politics/these-are-the-british-meps-who-voted-against-plans-to-crack-down-on-corporate-tax-evasion-a6982271.html?amp">(archive)</a>
 <br>
-<a href="https://www.bna.com/uk-becoming-prime-n57982083607/?amp=true">U.K. Becoming ‘Prime’ Tax Haven: EU Panama Inquiry Vice Chair</a>
+<a href="https://www.bna.com/uk-becoming-prime-n57982083607/?amp=true">U.K. Becoming ‘Prime’ Tax Haven: EU Panama Inquiry Vice Chair</a> <a href="https://archive.is/RsghB">(archive)</a>
 <br>
 
 <br>
