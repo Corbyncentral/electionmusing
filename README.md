@@ -549,15 +549,15 @@ NHS
 <br>
 <a href="https://tompride.wordpress.com/2017/05/08/nhs-tories-silent-on-introduction-of-145-charges-for-40-minute-gp-consultations/">NHS: Tories SILENT on introduction of £145 charges for 40-minute GP consultations</a> <a href="https://archive.is/wx8JB">(archive)</a>
 <br>
-<a href="https://www.theguardian.com/society/2015/feb/06/nhs-reforms-tories-damaging-thinktank-kings-fund">Leading health thinktank condemns ‘damaging’ Tory NHS reforms</a>
+<a href="https://www.theguardian.com/society/2015/feb/06/nhs-reforms-tories-damaging-thinktank-kings-fund">Leading health thinktank condemns ‘damaging’ Tory NHS reforms</a> <a href="https://archive.is/LhE0A">(archive)</a>
 <br>
-<a href="https://skwawkbox.org/2017/04/23/nhs-staff-do-publicduty-to-expose-tory-damage-pls-help-raise-awareness-ge17/">NHS STAFF DO #PUBLICDUTY TO EXPOSE TORY DAMAGE – PLS HELP RAISE AWARENESS. #GE17</a>
+<a href="https://skwawkbox.org/2017/04/23/nhs-staff-do-publicduty-to-expose-tory-damage-pls-help-raise-awareness-ge17/">NHS STAFF DO #PUBLICDUTY TO EXPOSE TORY DAMAGE – PLS HELP RAISE AWARENESS. #GE17</a> <a href="https://archive.is/bXR6Z">(archive)</a>
 <br>
-<a href="https://inews.co.uk/opinion/comment/jeremy-hunt-health-secretary-blood-on-his-hands-raymond-tallis-essay-nhs/">'Jeremy Hunt has blood on his hands’ – Raymond Tallis’s expert assault on the Health</a>
+<a href="https://inews.co.uk/opinion/comment/jeremy-hunt-health-secretary-blood-on-his-hands-raymond-tallis-essay-nhs/">'Jeremy Hunt has blood on his hands’ – Raymond Tallis’s expert assault on the Health</a> <a href="https://archive.is/rUwlK">(archive)</a>
 <br>
-<a href="http://www.independent.co.uk/news/uk/home-news/nhs-british-red-cross-hospitals-volunteers-land-rover-winter-pressure-emergency-a7514526.html">Red Cross steps in to help alleviate 'humanitarian crisis' at UK hospitals</a>
+<a href="http://www.independent.co.uk/news/uk/home-news/nhs-british-red-cross-hospitals-volunteers-land-rover-winter-pressure-emergency-a7514526.html">Red Cross steps in to help alleviate 'humanitarian crisis' at UK hospitals</a> <a href="https://web.archive.org/web/20170629004457/http://www.independent.co.uk/news/uk/home-news/nhs-british-red-cross-hospitals-volunteers-land-rover-winter-pressure-emergency-a7514526.html">(archive)</a>
 <br>
-<a href="http://www.mirror.co.uk/news/politics/what-naylor-report-everything-explained-10543351">What is the Naylor Report? A summary of the plans behind Theresa May's big NHS property sell-off</a>
+<a href="http://www.mirror.co.uk/news/politics/what-naylor-report-everything-explained-10543351">What is the Naylor Report? A summary of the plans behind Theresa May's big NHS property sell-off</a> <a href="https://archive.is/0VNRl">(archive)</a>
 <br>
 <a href="https://www.theguardian.com/society/2017/jun/16/most-of-central-london-hospital-to-be-sold-off-secret-plans-reveal">Most of central London hospital to be sold off, plans reveal</a>
 <br>
