@@ -584,15 +584,15 @@ UN
 <br>
 BREXIT
 <br>
-<a href="http://www.independent.co.uk/news/uk/home-news/sunday-times-rich-list-billionaires-wealthiest-worth-658-billion-a7722166.html">Brexit helps make UK's 1,000 richest people even richer</a>
+<a href="http://www.independent.co.uk/news/uk/home-news/sunday-times-rich-list-billionaires-wealthiest-worth-658-billion-a7722166.html">Brexit helps make UK's 1,000 richest people even richer</a> <a href="https://web.archive.org/web/20170629142036/http://www.independent.co.uk/news/uk/home-news/sunday-times-rich-list-billionaires-wealthiest-worth-658-billion-a7722166.html">(archive)</a>
 <br>
-<a href="http://www.thelondoneconomic.com/news/leaked-document-shows-secret-government-studies-impact-hard-brexit/07/04/">Leaked document shows ‘secret’ government studies into impact of ‘hard’ Brexit</a>
+<a href="http://www.thelondoneconomic.com/news/leaked-document-shows-secret-government-studies-impact-hard-brexit/07/04/">Leaked document shows ‘secret’ government studies into impact of ‘hard’ Brexit</a> <a href="https://archive.is/gAte9">(archive)</a>
 <br>
-<a href="https://www.theguardian.com/commentisfree/2016/jun/20/brexit-fake-revolt-eu-working-class-culture-hijacked-help-elite">Brexit is a fake revolt – working-class culture is being hijacked to help the elite</a>
+<a href="https://www.theguardian.com/commentisfree/2016/jun/20/brexit-fake-revolt-eu-working-class-culture-hijacked-help-elite">Brexit is a fake revolt – working-class culture is being hijacked to help the elite</a> <a href="https://archive.is/tyy2p">(archive)</a>
 <br>
-<a href="https://www.theguardian.com/technology/2017/may/07/the-great-british-brexit-robbery-hijacked-democracy">The great British Brexit robbery: how our democracy was hijacked</a>
+<a href="https://www.theguardian.com/technology/2017/may/07/the-great-british-brexit-robbery-hijacked-democracy">The great British Brexit robbery: how our democracy was hijacked</a> <a href="https://archive.is/iOL9C">(archive)</a>
 <br>
-<a href="http://www.independent.co.uk/voices/global-laundromat-money-laundering-panama-papers-more-scandals-a7644481.html">Brexit will only mean more money laundering scandals like ‘Global Laundromat’</a>
+<a href="http://www.independent.co.uk/voices/global-laundromat-money-laundering-panama-papers-more-scandals-a7644481.html">Brexit will only mean more money laundering scandals like ‘Global Laundromat’</a> <a href="https://web.archive.org/web/20170629142408/http://www.independent.co.uk/voices/global-laundromat-money-laundering-panama-papers-more-scandals-a7644481.html">(archive)</a>
 <br>
 <a href="https://www.theguardian.com/commentisfree/2017/apr/04/brutal-regimes-tory-brexit-eu-theresa-may-saudi-arabia-terror">This is what Brexit looks like: cosying up to brutal regimes</a>
 <br>
