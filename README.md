@@ -604,19 +604,19 @@ BREXIT
 <br>
 <a href="http://www.independent.co.uk/news/business/news/bank-of-england-mark-carney-boris-johnson-brexit-britain-worse-off-a7798551.html">Brexit will make Britain worse off, Bank of England Governor Mark Carney says</a> <a href="https://web.archive.org/web/20170629143605/http://www.independent.co.uk/news/business/news/bank-of-england-mark-carney-boris-johnson-brexit-britain-worse-off-a7798551.html">(archive)</a>
 <br>
-<a href="http://voxpoliticalonline.com/2016/05/21/priti-patel-admits-leave-campaign-agenda-to-reduce-workers-rights-tuc/">Priti Patel admits Leave campaign agenda to reduce workers’ rights – TUC</a>
+<a href="http://voxpoliticalonline.com/2016/05/21/priti-patel-admits-leave-campaign-agenda-to-reduce-workers-rights-tuc/">Priti Patel admits Leave campaign agenda to reduce workers’ rights – TUC</a> <a href="https://archive.is/f8d5y">(archive)</a>
 <br>
-<a href="http://www.independent.co.uk/news/uk/home-news/brexit-boris-johnson-michael-gove-nigel-farage-poll-hated-british-public-char-yougov-a7805466.html">Brexit's architects are hated by British public, chart shows</a>
+<a href="http://www.independent.co.uk/news/uk/home-news/brexit-boris-johnson-michael-gove-nigel-farage-poll-hated-british-public-char-yougov-a7805466.html">Brexit's architects are hated by British public, chart shows</a> <a href="https://web.archive.org/web/20170629145023/http://www.independent.co.uk/news/uk/home-news/brexit-boris-johnson-michael-gove-nigel-farage-poll-hated-british-public-char-yougov-a7805466.html">(archive)</a>
 <br>
-<a href="https://www.opendemocracy.net/uk/peter-geoghegan-adam-ramsay/you-aren-t-allowed-to-know-who-paid-for-key-leave-campaign-adverts">The 'dark money' that paid for Brexit</a>
+<a href="https://www.opendemocracy.net/uk/peter-geoghegan-adam-ramsay/you-aren-t-allowed-to-know-who-paid-for-key-leave-campaign-adverts">The 'dark money' that paid for Brexit</a> <a href="https://archive.is/2Rzy7">(archive)</a>
 <br>
 
 <br>
 PANAMA PAPERS AND TAXATION
 <br>
-<a href="http://www.independent.co.uk/news/uk/politics/leaked-papers-link-home-secretary-amber-rudd-to-bahamas-offshore-tax-haven-a7321676.html">Leaked papers 'link Home Secretary Amber Rudd to Bahamas offshore tax haven'</a>
+<a href="http://www.independent.co.uk/news/uk/politics/leaked-papers-link-home-secretary-amber-rudd-to-bahamas-offshore-tax-haven-a7321676.html">Leaked papers 'link Home Secretary Amber Rudd to Bahamas offshore tax haven'</a> <a href="https://web.archive.org/web/20170629145230/http://www.independent.co.uk/news/uk/politics/leaked-papers-link-home-secretary-amber-rudd-to-bahamas-offshore-tax-haven-a7321676.html">(archive)</a>
 <br>
-<a href="http://www.telegraph.co.uk/news/2016/05/09/panama-papers-full-database-revealed/">Panama Papers database dump reveals 200,000 secret offshore account details</a>
+<a href="http://www.telegraph.co.uk/news/2016/05/09/panama-papers-full-database-revealed/">Panama Papers database dump reveals 200,000 secret offshore account details</a> <a href="https://archive.is/Gi5aq">(archive)</a>
 <br>
 <a href="https://www.vice.com/en_uk/article/8gkyv3/why-you-should-care-about-panama-papers-mossack-fonseca">Here's Why You Should Give a Sh*t About the Panama Papers</a>
 <br>
