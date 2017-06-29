@@ -708,17 +708,17 @@ JEREMY HUNT
 <br>
 BORIS JOHNSON
 <br>
-<a href="https://www.theguardian.com/politics/video/2013/mar/24/boris-johnson-accused-nasty-video">Boris Johnson accused: 'you're a nasty piece of work' – video</a>
+<a href="https://www.theguardian.com/politics/video/2013/mar/24/boris-johnson-accused-nasty-video">Boris Johnson accused: 'you're a nasty piece of work' – video</a> <a href="https://archive.is/sXIUw">(archive)</a>
 <br>
-<a href="https://www.theguardian.com/politics/2009/mar/29/boris-johnson-channel-4">Extracts from an infamous audio tape in which Boris Johnson discusses a plan to have a tabloid journalist beaten up are to be broadcast tomorrow for the first time.</a>
+<a href="https://www.theguardian.com/politics/2009/mar/29/boris-johnson-channel-4">Extracts from an infamous audio tape in which Boris Johnson discusses a plan to have a tabloid journalist beaten up are to be broadcast tomorrow for the first time.</a> <a href="https://archive.is/tTyNV">(archive)</a>
 <br>
-<a href="https://www.theguardian.com/artanddesign/2017/apr/28/garden-bridge-dead-38m-public-money-repaid-boris-johnson">The garden bridge is dead – now £37m of public money must be repaid</a>
+<a href="https://www.theguardian.com/artanddesign/2017/apr/28/garden-bridge-dead-38m-public-money-repaid-boris-johnson">The garden bridge is dead – now £37m of public money must be repaid</a> <a href="https://archive.is/w1xP0">(archive)</a>
 <br>
-<a href="http://www.standard.co.uk/news/mayor/boris-says-sorry-over-blacks-have-lower-iqs-article-in-the-spectator-6630340.html">Boris says sorry over 'blacks have lower IQs' article</a>
+<a href="http://www.standard.co.uk/news/mayor/boris-says-sorry-over-blacks-have-lower-iqs-article-in-the-spectator-6630340.html">Boris says sorry over 'blacks have lower IQs' article</a> <a href="https://archive.is/XQLwb">(archive)</a>
 <br>
-<a href="http://www.mirror.co.uk/news/politics/boris-johnsons-most-cringeworthy-gaffes-10440606">Boris Johnson's most cringeworthy gaffes revealed after he insults Sikh woman on visit to holy temple</a>
+<a href="http://www.mirror.co.uk/news/politics/boris-johnsons-most-cringeworthy-gaffes-10440606">Boris Johnson's most cringeworthy gaffes revealed after he insults Sikh woman on visit to holy temple</a> <a href="https://archive.is/9aOnG">(archive)</a>
 <br>
-<a href="https://www.theguardian.com/uk-news/2016/dec/14/boris-johnsons-unused-water-cannon-were-fitted-with-1000-stereos">Boris Johnson's unused water cannon had £1,000 stereos fitted</a>
+<a href="https://www.theguardian.com/uk-news/2016/dec/14/boris-johnsons-unused-water-cannon-were-fitted-with-1000-stereos">Boris Johnson's unused water cannon had £1,000 stereos fitted</a> <a href="https://archive.is/8R5jk">(archive)</a>
 <br>
 <br>
 ANDREA LEADSOM
