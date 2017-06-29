@@ -405,6 +405,8 @@ EMPLOYMENT
 <br>
 <a href="http://www.bbc.co.uk/news/business-36735004">New government pension rules open the door to rip-offs</a> <a href="https://archive.is/IN9Ue">(archive)</a>
 <br>
+<a href="https://politicalscrapbook.net/2017/06/10-tory-mps-who-spoke-out-against-the-pay-cap-and-then-voted-for-it/amp/">10 TORY MPS WHO SPOKE OUT AGAINST THE PAY CAP – AND THEN VOTED FOR IT</a> <a href="https://archive.is/x9SxF">(archive)</a>
+<br>
 
 <br>
 EDUCATION
