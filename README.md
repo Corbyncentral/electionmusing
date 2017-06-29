@@ -811,17 +811,17 @@ CHRIS GRAYLING
 <br>
 LIZ TRUSS
 <br>
-<a href="https://www.theguardian.com/environment/georgemonbiot/2015/nov/12/toothless-environment-agency-is-allowing-the-living-world-to-be-wrecked-with-impunity">Toothless Environment Agency is allowing the living world to be wrecked with impunity</a>
+<a href="https://www.theguardian.com/environment/georgemonbiot/2015/nov/12/toothless-environment-agency-is-allowing-the-living-world-to-be-wrecked-with-impunity">Toothless Environment Agency is allowing the living world to be wrecked with impunity</a> <a href="https://archive.is/aANMj">(archive)</a>
 <br>
-<a href="https://www.lawgazette.co.uk/law/unrepentant-mail-demands-public-hearings-for-judges-as-brexit-row-escalates/5058689.article">Unrepentant Mail demands ‘public hearings’ for judges as Brexit row escalates</a>
+<a href="https://www.lawgazette.co.uk/law/unrepentant-mail-demands-public-hearings-for-judges-as-brexit-row-escalates/5058689.article">Unrepentant Mail demands ‘public hearings’ for judges as Brexit row escalates</a> <a href="https://archive.is/EoMer">(archive)</a>
 <br>
-<a href="https://www.theguardian.com/commentisfree/2016/jul/25/row-over-liz-truss-sexism-gender-law-lord-chancellor">This row over Liz Truss as lord chancellor isn’t about gender. It's about the law.</a>
+<a href="https://www.theguardian.com/commentisfree/2016/jul/25/row-over-liz-truss-sexism-gender-law-lord-chancellor">This row over Liz Truss as lord chancellor isn’t about gender. It's about the law.</a> <a href="https://archive.is/9fpHg">(archive)</a>
 <br>
 
 <br>
 SAJID JAVID
 <br>
-<a href="https://www.theguardian.com/world/2017/feb/07/official-advised-uk-minister-to-suspend-saudi-weapons-exports-court-hears">UK minister ignored official warning over Saudi weapons exports, court hears</a>
+<a href="https://www.theguardian.com/world/2017/feb/07/official-advised-uk-minister-to-suspend-saudi-weapons-exports-court-hears">UK minister ignored official warning over Saudi weapons exports, court hears</a> <a href="https://archive.is/1D3x3">(archive)</a>
 <br>
 <a href="http://www.newstatesman.com/politics/2014/04/sajid-javids-father-would-never-have-made-it-camerons-britain">Sajid Javid's father would never have made it into Cameron's Britain</a> <a href="https://archive.is/mBYmD">(archive)</a>
 <br>
