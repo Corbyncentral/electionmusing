@@ -496,6 +496,8 @@ INQUIRIES
 <br>
 <a href="http://www.independent.co.uk/news/uk/home-news/grenfell-fire-inquest-inquiry-theresa-may-faces-demands-whitewash-fears-latest-news-a7793866.html">Grenfell Tower fire: Thousands demand Theresa May hold inquest instead of inquiry amid 'whitewash' fears</a> <a href="https://web.archive.org/web/20170628221616/http://www.independent.co.uk/news/uk/home-news/grenfell-fire-inquest-inquiry-theresa-may-faces-demands-whitewash-fears-latest-news-a7793866.html">(archive)</a>
 <br>
+<a href="http://www.telegraph.co.uk/news/0/sir-martin-moore-bick-grenfell-tower-inquiry-judge/">Who is Sir Martin Moore-Bick, the Grenfell Tower inquiry judge?</a> <a href="https://archive.is/vBVI3">(archive)</a>
+<br>
 
 <br>
 CONSERVATIVES AND THE PRESS
