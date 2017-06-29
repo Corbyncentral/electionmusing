@@ -767,19 +767,19 @@ AMBER RUDD
 <br>
 DAMIEN GREEN
 <br>
-<a href="http://news.bbc.co.uk/1/hi/uk_politics/7753557.stm">Senior Tory arrested over leaks</a>
+<a href="http://news.bbc.co.uk/1/hi/uk_politics/7753557.stm">Senior Tory arrested over leaks</a> <a href="https://archive.is/aFaGB">(archive)</a>
 <br>
-<a href="http://www.welfareweekly.com/meet-the-new-work-and-pensions-secretary-damian-green-mp-his-voting-record/">Meet the new Work and Pensions Secretary, Damian Green MP – his voting record</a>
+<a href="http://www.welfareweekly.com/meet-the-new-work-and-pensions-secretary-damian-green-mp-his-voting-record/">Meet the new Work and Pensions Secretary, Damian Green MP – his voting record</a> <a href="https://archive.is/gV4fL">(archive)</a>
 <br>
 
 <br>
 MICHAEL GOVE
 <br>
-<a href="https://www.theguardian.com/politics/2012/feb/26/schools-crusade-gove-murdoch">The schools crusade that links Michael Gove to Rupert Murdoch</a>
+<a href="https://www.theguardian.com/politics/2012/feb/26/schools-crusade-gove-murdoch">The schools crusade that links Michael Gove to Rupert Murdoch</a> <a href="https://archive.is/NR1JY">(archive)</a>
 <br>
-<a href="http://www.independent.co.uk/news/uk/politics/michael-gove-rupert-murdoch-ian-hislop-relationship-times-private-eye-a7356466.html">Michael Gove and Rupert Murdoch's relationship should be investigated, says Private Eye editor Ian Hislop</a>
+<a href="http://www.independent.co.uk/news/uk/politics/michael-gove-rupert-murdoch-ian-hislop-relationship-times-private-eye-a7356466.html">Michael Gove and Rupert Murdoch's relationship should be investigated, says Private Eye editor Ian Hislop</a> <a href="https://web.archive.org/web/20170629181131/http://www.independent.co.uk/news/uk/politics/michael-gove-rupert-murdoch-ian-hislop-relationship-times-private-eye-a7356466.html">(archive)</a>
 <br>
-<a href="http://www.independent.co.uk/news/uk/politics/theresa-may-rupert-murdoch-michael-gove-cabinet-job-tom-watson-labour-deputy-leader-letter-sun-times-a7785631.html">Theresa May asked if Rupert Murdoch told her to give Michael Gove a Cabinet job, in letter from Labour's deputy leader</a>
+<a href="http://www.independent.co.uk/news/uk/politics/theresa-may-rupert-murdoch-michael-gove-cabinet-job-tom-watson-labour-deputy-leader-letter-sun-times-a7785631.html">Theresa May asked if Rupert Murdoch told her to give Michael Gove a Cabinet job, in letter from Labour's deputy leader</a> <a href="https://web.archive.org/web/20170629181330/http://www.independent.co.uk/news/uk/politics/theresa-may-rupert-murdoch-michael-gove-cabinet-job-tom-watson-labour-deputy-leader-letter-sun-times-a7785631.html">(archive)</a>
 <br>
 <a href="http://www.telegraph.co.uk/news/newstopics/mps-expenses/5305434/Michael-Gove-flipped-homes-MPs-expenses.html">Michael Gove 'flipped' homes: MPs' expenses</a>
 <br>
