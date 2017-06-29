@@ -469,6 +469,7 @@ NASTY PARTY
 <a href="http://www.independent.co.uk/news/uk/politics/general-election-2017-james-heappey-tory-mp-referendum-scottish-national-party-a7735311.html?amp">Tory MP 'told schoolgirl to "f*** off back to Scotland" when she said she'd vote for independence</a> <a href="https://web.archive.org/web/20170628213004/http://www.independent.co.uk/news/uk/politics/general-election-2017-james-heappey-tory-mp-referendum-scottish-national-party-a7735311.html?amp">(archive)</a>
 <br>
 <a href="http://www.standard.co.uk/news/politics/tory-mp-johnny-mercer-accused-over-3500-expenses-claim-for-five-imacs-a3115271.html">TORY MP Johnny Mercer accused over £3500 expenses claim for five imacs</a> <a href="https://archive.is/NjFL8">(archive)</a>
+<br>
 
 <br>
 ORGREAVE
