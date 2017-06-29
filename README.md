@@ -667,19 +667,19 @@ ISRAEL
 <a href="https://electronicintifada.net/blogs/asa-winstanley/labours-israel-lobby-plans-relaunch-campaign-against-corbyn">
 Labour’s Israel lobby plans to relaunch campaign against Corbyn</a> <a href="https://archive.is/2QZtz">(archive)</a>
 <br>
-<a href="https://electronicintifada.net/blogs/david-cronin/new-british-minister-michael-gove-gets-funding-israel-lobby">New British minister Michael Gove gets funding from Israel lobby</a>
+<a href="https://electronicintifada.net/blogs/david-cronin/new-british-minister-michael-gove-gets-funding-israel-lobby">New British minister Michael Gove gets funding from Israel lobby</a> <a href="https://archive.is/eTcNb">(archive)</a>
 <br>
-<a href="http://freespeechonisrael.org.uk/jeremy-corbyn/">I’m a British Jew, and I Don’t Fear a Corbyn Victory I’d Welcome It</a>
+<a href="http://freespeechonisrael.org.uk/jeremy-corbyn/">I’m a British Jew, and I Don’t Fear a Corbyn Victory I’d Welcome It</a> <a href="https://archive.is/NwFci">(archive)</a>
 <br>
 
 <br>
 MICHAEL FALLON
 <br>
-<a href="http://www.mirror.co.uk/news/politics/tory-michael-fallon-just-confronted-10418906">Tory Michael Fallon just got ambushed on live TV for spreading 'b*****ks' about Labour</a>
+<a href="http://www.mirror.co.uk/news/politics/tory-michael-fallon-just-confronted-10418906">Tory Michael Fallon just got ambushed on live TV for spreading 'b*****ks' about Labour</a> <a href="https://archive.is/Fgs8S">(archive)</a>
 <br>
-<a href="http://anotherangryvoice.blogspot.co.uk/2017/05/the-tory-defence-minister-michael.html">The Tory defence minister Michael Fallon is a liar</a>
+<a href="http://anotherangryvoice.blogspot.co.uk/2017/05/the-tory-defence-minister-michael.html">The Tory defence minister Michael Fallon is a liar</a> <a href="https://archive.is/a9LCo">(archive)</a>
 <br>
-<a href="https://labourfriendsoftheforces.org.uk/2017/05/22/michael-fallon-skips-defence-debate-to-campaign-in-ilford/">Michael Fallon skips defence debate to campaign in Ilford</a>
+<a href="https://labourfriendsoftheforces.org.uk/2017/05/22/michael-fallon-skips-defence-debate-to-campaign-in-ilford/">Michael Fallon skips defence debate to campaign in Ilford</a> <a href="https://archive.is/G235U">(archive)</a>
 <br>
 <a href="http://www.dailyrecord.co.uk/news/uk-world-news/watch-key-tory-michael-fallon-10519221">Tory Michael Fallon is caught twisting Jeremy Corbyn's words about terrorism on live TV</a>
 <br>
