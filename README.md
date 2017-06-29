@@ -539,15 +539,15 @@ CORRUPTION ALLEGATIONS
 <br>
 NHS
 <br>
-<a href="http://www.independent.co.uk/news/uk/politics/nhs-privatisation-charges-professionals-in-house-agency-a7426966.html?amp">Government quietly privatises the NHS's in-house agency staff provider</a>
+<a href="http://www.independent.co.uk/news/uk/politics/nhs-privatisation-charges-professionals-in-house-agency-a7426966.html?amp">Government quietly privatises the NHS's in-house agency staff provider</a> <a href="https://web.archive.org/web/20170629002741/http://www.independent.co.uk/news/uk/politics/nhs-privatisation-charges-professionals-in-house-agency-a7426966.html?amp">(archive)</a>
 <br>
-<a href="http://www.mirror.co.uk/news/politics/nhs-paying-private-firms-millions-10637419.amp">NHS paying private firms millions to beat bed blocking after social care cuts</a>
+<a href="http://www.mirror.co.uk/news/politics/nhs-paying-private-firms-millions-10637419.amp">NHS paying private firms millions to beat bed blocking after social care cuts</a> <a href="https://archive.is/M6e64">(archive)</a>
 <br>
-<a href="http://theleveller.org/2017/02/may-nhs-no-facts/">Alternative facts? On the NHS, May wants to give NO facts</a>
+<a href="http://theleveller.org/2017/02/may-nhs-no-facts/">Alternative facts? On the NHS, May wants to give NO facts</a> <a href="https://archive.is/ICRZW">(archive)</a>
 <br>
-<a href="http://nyebevannews.co.uk/health-foundation-half-the-money-tories-promised-in-2015-left-the-nhs-for-private-companies/">Health foundation:Half the money promised in 2015 left the NHS for private companies</a>
+<a href="http://nyebevannews.co.uk/health-foundation-half-the-money-tories-promised-in-2015-left-the-nhs-for-private-companies/">Health foundation:Half the money promised in 2015 left the NHS for private companies</a> <a href="https://archive.is/A1vQJ">(archive)</a>
 <br>
-<a href="https://tompride.wordpress.com/2017/05/08/nhs-tories-silent-on-introduction-of-145-charges-for-40-minute-gp-consultations/">NHS: Tories SILENT on introduction of £145 charges for 40-minute GP consultations</a>
+<a href="https://tompride.wordpress.com/2017/05/08/nhs-tories-silent-on-introduction-of-145-charges-for-40-minute-gp-consultations/">NHS: Tories SILENT on introduction of £145 charges for 40-minute GP consultations</a> <a href="https://archive.is/wx8JB">(archive)</a>
 <br>
 <a href="https://www.theguardian.com/society/2015/feb/06/nhs-reforms-tories-damaging-thinktank-kings-fund">Leading health thinktank condemns ‘damaging’ Tory NHS reforms</a>
 <br>
