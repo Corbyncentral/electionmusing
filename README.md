@@ -723,18 +723,18 @@ BORIS JOHNSON
 <br>
 ANDREA LEADSOM
 <br>
-<a href="http://www.newstatesman.com/politics/uk/2016/07/9-reasons-you-should-be-truly-terrified-andrea-leadsom-becoming-prime-minister">9 reasons you should be truly terrified of Andrea Leadsom becoming Prime Minister</a>
+<a href="http://www.newstatesman.com/politics/uk/2016/07/9-reasons-you-should-be-truly-terrified-andrea-leadsom-becoming-prime-minister">9 reasons you should be truly terrified of Andrea Leadsom becoming Prime Minister</a> <a href="https://archive.is/O23y4">(archive)</a>
 <br>
-<a href="http://www.independent.co.uk/news/uk/politics/revealed-how-city-minister-andrea-leadsom-used-controversial-trusts-to-reduce-her-potential-9268469.html">Revealed: how City minister Andrea Leadsom used controversial trusts to reduce her potential inheritance-tax bill</a>
+<a href="http://www.independent.co.uk/news/uk/politics/revealed-how-city-minister-andrea-leadsom-used-controversial-trusts-to-reduce-her-potential-9268469.html">Revealed: how City minister Andrea Leadsom used controversial trusts to reduce her potential inheritance-tax bill</a> <a href="https://web.archive.org/web/20170629173132/http://www.independent.co.uk/news/uk/politics/revealed-how-city-minister-andrea-leadsom-used-controversial-trusts-to-reduce-her-potential-9268469.html">(archive)</a>
 <br>
-<a href="http://uk.businessinsider.com/andrea-leadsom-cv-still-has-alleged-inaccuracies-2016-7">Andrea Leadsom has finally released her full CV — but people say there are STILL inaccuracies</a>
+<a href="http://uk.businessinsider.com/andrea-leadsom-cv-still-has-alleged-inaccuracies-2016-7">Andrea Leadsom has finally released her full CV — but people say there are STILL inaccuracies</a> <a href="https://archive.is/x0FUv">(archive)</a>
 <br>
 <br>
 PHILIP HAMMOND
 <br>
-<a href="http://www.prweek.com/article/1359307/foreign-secretary-latest-mp-stir-controversy-marauding-migrant-comment">Foreign Secretary Philip Hammond is facing a backlash over his choice of words in referring to migrants trying to get to the UK</a>
+<a href="http://www.prweek.com/article/1359307/foreign-secretary-latest-mp-stir-controversy-marauding-migrant-comment">Foreign Secretary Philip Hammond is facing a backlash over his choice of words in referring to migrants trying to get to the UK</a> <a href="https://archive.is/YnWgc">(archive)</a>
 <br>
-<a href="http://www.dailypost.co.uk/news/north-wales-news/chancellor-philip-hammond-dodges-question-13119536">Chancellor Philip Hammond dodges question about housing firm he has shares in</a>
+<a href="http://www.dailypost.co.uk/news/north-wales-news/chancellor-philip-hammond-dodges-question-13119536">Chancellor Philip Hammond dodges question about housing firm he has shares in</a> <a href="https://archive.is/3BfjF">(archive)</a>
 <br>
 
 <br>
