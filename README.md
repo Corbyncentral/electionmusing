@@ -799,13 +799,13 @@ DAVID DAVIS
 <br>
 CHRIS GRAYLING
 <br>
-<a href="https://www.theguardian.com/politics/audio/2010/apr/03/chris-grayling-secret-tape">Listen to the secret recording: Top Tory backs bar on gays</a>
+<a href="https://www.theguardian.com/politics/audio/2010/apr/03/chris-grayling-secret-tape">Listen to the secret recording: Top Tory backs bar on gays</a> <a href="https://archive.is/NdFLD">(archive)</a>
 <br>
-<a href="http://www.independent.co.uk/news/uk/politics/chris-grayling-spends-72000-of-taxpayers-money-to-defend-unlawful-prison-book-ban-9969937.html">Chris Grayling spends £72,000 of taxpayers' money to defend 'unlawful' prison book ban</a>
+<a href="http://www.independent.co.uk/news/uk/politics/chris-grayling-spends-72000-of-taxpayers-money-to-defend-unlawful-prison-book-ban-9969937.html">Chris Grayling spends £72,000 of taxpayers' money to defend 'unlawful' prison book ban</a> <a href="https://web.archive.org/web/20170629183705/http://www.independent.co.uk/news/uk/politics/chris-grayling-spends-72000-of-taxpayers-money-to-defend-unlawful-prison-book-ban-9969937.html">(archive)</a>
 <br>
-<a href="http://news.bbc.co.uk/1/hi/uk_politics/8498095.stm">Chris Grayling use of crime statistics 'mislead' public</a>
+<a href="http://news.bbc.co.uk/1/hi/uk_politics/8498095.stm">Chris Grayling use of crime statistics 'mislead' public</a> <a href="https://archive.is/va4oV">(archive)</a>
 <br>
-<a href="http://www.newstatesman.com/politics/staggers/2015/12/chris-grayling-most-incompetent-member-government">Is Chris Grayling the most incompetent member of the government?</a>
+<a href="http://www.newstatesman.com/politics/staggers/2015/12/chris-grayling-most-incompetent-member-government">Is Chris Grayling the most incompetent member of the government?</a> <a href="https://archive.is/rKmiu">(archive)</a>
 <br>
 
 <br>
