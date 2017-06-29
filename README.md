@@ -421,6 +421,8 @@ EDUCATION
 <br>
 <a href="https://amp.theguardian.com/money/2017/jun/15/uk-student-loan-debt-soars-to-more-than-100bn">UK student loan debt soars to more than £100bn</a> <a href="https://archive.is/76ZL8">(archive)</a>
 <br>
+<a href="https://www.thecanary.co/2017/06/29/the-daily-mail-gets-its-knickers-in-a-twist-because-teachers-told-parents-whats-actually-happening-in-our-schools/">The Daily Mail is getting its knickers in a twist because teachers dared to tell the truth about our schools</a> <a href="https://web.archive.org/web/20170629214616/https://www.thecanary.co/2017/06/29/the-daily-mail-gets-its-knickers-in-a-twist-because-teachers-told-parents-whats-actually-happening-in-our-schools/">(archive)</a>
+<br>
 
 <br>
 RAILWAYS
