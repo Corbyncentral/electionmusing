@@ -681,20 +681,20 @@ MICHAEL FALLON
 <br>
 <a href="https://labourfriendsoftheforces.org.uk/2017/05/22/michael-fallon-skips-defence-debate-to-campaign-in-ilford/">Michael Fallon skips defence debate to campaign in Ilford</a> <a href="https://archive.is/G235U">(archive)</a>
 <br>
-<a href="http://www.dailyrecord.co.uk/news/uk-world-news/watch-key-tory-michael-fallon-10519221">Tory Michael Fallon is caught twisting Jeremy Corbyn's words about terrorism on live TV</a>
+<a href="http://www.dailyrecord.co.uk/news/uk-world-news/watch-key-tory-michael-fallon-10519221">Tory Michael Fallon is caught twisting Jeremy Corbyn's words about terrorism on live TV</a> <a href="https://archive.is/Gzg8w">(archive)</a>
 <br>
-<a href="https://www.theguardian.com/politics/2017/may/27/fallon-left-red-faced-after-condemning-boris-johnson-extremism-comments">Fallon left red faced after condemning Boris Johnson</a>
+<a href="https://www.theguardian.com/politics/2017/may/27/fallon-left-red-faced-after-condemning-boris-johnson-extremism-comments">Fallon left red faced after condemning Boris Johnson</a> <a href="https://archive.is/Gzg8w">(archive)</a>
 <br>
 
 <br>
 JEREMY HUNT
 <br>
 
-<a href="http://www.independent.co.uk/news/uk/jeremy-hunt-accused-of-lying-and-manipulating-statistics-by-junior-doctor-during-live-bbc-interview-a6861116.html">Jeremy Hunt accused of 'lying and manipulating statistics' by junior doctor during live BBC interview</a>
+<a href="http://www.independent.co.uk/news/uk/jeremy-hunt-accused-of-lying-and-manipulating-statistics-by-junior-doctor-during-live-bbc-interview-a6861116.html">Jeremy Hunt accused of 'lying and manipulating statistics' by junior doctor during live BBC interview</a> <a href="https://web.archive.org/web/20170629163421/http://www.independent.co.uk/news/uk/jeremy-hunt-accused-of-lying-and-manipulating-statistics-by-junior-doctor-during-live-bbc-interview-a6861116.html">(archive)</a>
 <br>
-<a href="http://www.thelondoneconomic.com/news/politics/jeremy-hunt-accused-gp-lying-election-night-reply-dynamite/13/06/">Jeremy Hunt accused this GP of lying on election night. Her reply is dynamite.</a>
+<a href="http://www.thelondoneconomic.com/news/politics/jeremy-hunt-accused-gp-lying-election-night-reply-dynamite/13/06/">Jeremy Hunt accused this GP of lying on election night. Her reply is dynamite.</a> <a href="https://archive.is/O16aU">(archive)</a>
 <br>
-<a href="http://www.mirror.co.uk/news/politics/jeremy-hunt-sparks-fury-giving-10631267">Jeremy Hunt sparks fury by giving sympathy instead of pay rise</a>
+<a href="http://www.mirror.co.uk/news/politics/jeremy-hunt-sparks-fury-giving-10631267">Jeremy Hunt sparks fury by giving sympathy instead of pay rise</a> <a href="https://archive.is/Jv325">(archive)</a>
 <br>
 <a href="https://www.theguardian.com/politics/2012/jun/11/jeremy-hunt-urged-resign-leveson">Jeremy Hunt should have resigned over BSkyB bid, says Lord Oakeshott</a>
 <br>
