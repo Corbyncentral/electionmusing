@@ -740,13 +740,13 @@ PHILIP HAMMOND
 <br>
 LIAM FOX
 <br>
-<a href="http://www.bbc.co.uk/news/uk-politics-15300751">Liam Fox quits as defence secretary</a>
+<a href="http://www.bbc.co.uk/news/uk-politics-15300751">Liam Fox quits as defence secretary</a> <a href="https://archive.is/2QHK">(archive)</a>
 <br>
-<a href="http://www.telegraph.co.uk/news/newstopics/mps-expenses/9619022/Expenses-scandal-27-MPs-let-one-home-and-claim-for-another.html">Expenses scandal: 27 MPs let one home and claim for another</a>
+<a href="http://www.telegraph.co.uk/news/newstopics/mps-expenses/9619022/Expenses-scandal-27-MPs-let-one-home-and-claim-for-another.html">Expenses scandal: 27 MPs let one home and claim for another</a> <a href="https://archive.is/wZ3qV">(archive)</a>
 <br>
-<a href="http://www.telegraph.co.uk/news/newstopics/mps-expenses/7450738/MPs-expenses-Liam-Fox-becomes-highest-shadow-cabinet-repayer.html">MPs’ expenses: Liam Fox becomes highest shadow cabinet repayer</a>
+<a href="http://www.telegraph.co.uk/news/newstopics/mps-expenses/7450738/MPs-expenses-Liam-Fox-becomes-highest-shadow-cabinet-repayer.html">MPs’ expenses: Liam Fox becomes highest shadow cabinet repayer</a> <a href="https://archive.is/ucmz4">(archive)</a>
 <br>
-<a href="http://www.telegraph.co.uk/news/newstopics/mps-expenses/conservative-mps-expenses/8817286/Defence-Secretary-Liam-Fox-used-expenses-to-pay-his-best-man-Adam-Werritty.html">Defence Secretary Liam Fox used expenses to pay his best man Adam Werritty</a>
+<a href="http://www.telegraph.co.uk/news/newstopics/mps-expenses/conservative-mps-expenses/8817286/Defence-Secretary-Liam-Fox-used-expenses-to-pay-his-best-man-Adam-Werritty.html">Defence Secretary Liam Fox used expenses to pay his best man Adam Werritty</a> <a href="https://archive.is/h34a">(archive)</a>
 <br>
 
 <br>
