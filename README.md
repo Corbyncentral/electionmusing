@@ -225,6 +225,8 @@ AUSTERITY/WELFARE
 <br>
 <a href="http://www.independent.co.uk/voices/handbag-economics-and-the-other-myths-that-drive-austerity-a6954851.html?amp">'Handbag economics' and the other myths that drive austerity</a> <a href="https://web.archive.org/web/20170628042810/http://www.independent.co.uk/voices/handbag-economics-and-the-other-myths-that-drive-austerity-a6954851.html?amp">(archive)</a>
 <br>
+<a href="https://amp.theguardian.com/society/2017/jun/29/biggest-ever-study-of-food-banks-warns-use-likely-to-increase">Biggest ever study of food banks warns use likely to increase</a> <a href="https://archive.is/pZbgH">(archive)</a>
+<br>
 
 <br>
 DISABILITY
