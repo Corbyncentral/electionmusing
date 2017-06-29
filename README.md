@@ -642,15 +642,15 @@ ECONOMY
 <br>
 <a href="https://politicalscrapbook.net/2017/04/foodbank-use-growing-under-theresa-may/">Foodbank use growing under Theresa May</a> <a href="https://archive.is/WaPwT">(archive)</a>
 <br>
-<a href="https://www.theguardian.com/society/2013/sep/11/bedroom-tax-should-be-axed-says-un-investigator">'Shocking' bedroom tax should be axed, says UN investigator</a>
+<a href="https://www.theguardian.com/society/2013/sep/11/bedroom-tax-should-be-axed-says-un-investigator">'Shocking' bedroom tax should be axed, says UN investigator</a> <a href="https://archive.is/S2SqT">(archive)</a>
 <br>
-<a href="http://blog.shelter.org.uk/2016/01/the-government-still-think-that-the-bedroom-tax-is-fair-play/">The government still think that the Bedroom Tax is fair play</a>
+<a href="http://blog.shelter.org.uk/2016/01/the-government-still-think-that-the-bedroom-tax-is-fair-play/">The government still think that the Bedroom Tax is fair play</a> <a href="https://archive.is/scBN2">(archive)</a>
 <br>
-<a href="https://www.theguardian.com/society/patrick-butler-cuts-blog/2013/jan/16/welfare-reform-bedroom-tax-policy-that-has-no-logic">Welfare reform: the bedroom tax, 'a policy that has no logic'</a>
+<a href="https://www.theguardian.com/society/patrick-butler-cuts-blog/2013/jan/16/welfare-reform-bedroom-tax-policy-that-has-no-logic">Welfare reform: the bedroom tax, 'a policy that has no logic'</a> <a href="https://archive.is/Kez4b">(archive)</a>
 <br>
-<a href="https://www.theguardian.com/commentisfree/2017/apr/27/labour-tory-welfare-spending-universal-credit-housing">They say Labour is financially inept. Yet just look at Tory welfare spending</a>
+<a href="https://www.theguardian.com/commentisfree/2017/apr/27/labour-tory-welfare-spending-universal-credit-housing">They say Labour is financially inept. Yet just look at Tory welfare spending</a> <a href="https://archive.is/4lSlI">(archive)</a>
 <br>
-<a href="http://anotherangryvoice.blogspot.co.uk/2017/04/30-things-you-should-know-about-tory.html">30 things you should know about the Tory record</a>
+<a href="http://anotherangryvoice.blogspot.co.uk/2017/04/30-things-you-should-know-about-tory.html">30 things you should know about the Tory record</a> <a href="https://archive.is/J26cu">(archive)</a>
 <br>
 
 <br>
