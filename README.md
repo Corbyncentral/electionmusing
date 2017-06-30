@@ -644,7 +644,7 @@ BREXIT
 <a href="https://www.opendemocracy.net/uk/peter-geoghegan-adam-ramsay/you-aren-t-allowed-to-know-who-paid-for-key-leave-campaign-adverts">The 'dark money' that paid for Brexit</a> <a href="https://archive.is/2Rzy7">(archive)</a>
 <br>
 <a href="https://brussels.whiterose.ac.uk/wp-content/uploads/2017/05/SPERI-Paper-41-The-Political-Economy-of-Brexit-and-the-UK-s-National-Business-Model-PRINT-2.pdf">The political economy of Brexit and the UK national business model</a> <a href="https://archive.is/d5Noi">(archive)</a>
-
+<br>
 
 <br>
 PANAMA PAPERS AND TAXATION
