@@ -763,6 +763,7 @@ BORIS JOHNSON
 <br>
 <a href="https://www.theguardian.com/uk-news/2016/dec/14/boris-johnsons-unused-water-cannon-were-fitted-with-1000-stereos">Boris Johnson's unused water cannon had £1,000 stereos fitted</a> <a href="https://archive.is/8R5jk">(archive)</a>
 <br>
+
 <br>
 ANDREA LEADSOM
 <br>
@@ -827,6 +828,8 @@ MICHAEL GOVE
 <a href="http://www.telegraph.co.uk/news/newstopics/mps-expenses/5305434/Michael-Gove-flipped-homes-MPs-expenses.html">Michael Gove 'flipped' homes: MPs' expenses</a> <a href="https://archive.is/BQ6tQ">(archive)</a>
 <br>
 <a href="http://www.dailyrecord.co.uk/news/politics/michael-gove-could-add-rich-8328091">Michael Gove could add to rich history of Tory sex scandals as embarrassing 'five-in-a-bed romp' details emerge</a> <a href="https://archive.is/0XExU">(archive)</a>
+<br>
+<a href="http://www.telegraph.co.uk/news/politics/9120506/Michael-Gove-aides-destroyed-government-emails.html">Michael Gove aides 'destroyed government emails'</a> <a href="https://archive.is/i3QI6">(archive)</a>
 <br>
 
 <br>
