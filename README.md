@@ -337,6 +337,8 @@ MORE ON GRENFELL
 <br>
 <a href="http://www.independent.co.uk/property/house-and-home/pets/news/fire-safety-measures-grenfell-tower-sprinklers-retrofitting-fire-service-cuts-independent-panel-a7812646.html?amp">Fire safety independent panel chair advised against retrofitting sprinklers and authored report advocating £200m fire service cuts</a> <a href="https://web.archive.org/web/20170630021051/http://www.independent.co.uk/property/house-and-home/pets/news/fire-safety-measures-grenfell-tower-sprinklers-retrofitting-fire-service-cuts-independent-panel-a7812646.html?amp">(archive)</a>
 <br>
+<a href="https://www.theguardian.com/uk-news/2017/jun/19/kensington-chelsea-council-has-274m-in-reserves-grenfell-tower-budget-surplus">Kensington and Chelsea council has £274m in reserves</a> <a href="https://archive.is/bscCx">(archive)</a>
+<br>
 
 <br>
 HOUSING
