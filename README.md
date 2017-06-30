@@ -695,6 +695,9 @@ ECONOMY
 <br>
 <a href="http://anotherangryvoice.blogspot.co.uk/2017/04/30-things-you-should-know-about-tory.html">30 things you should know about the Tory record</a> <a href="https://archive.is/J26cu">(archive)</a>
 <br>
+<a href="http://www.independent.co.uk/news/business/news/uk-economy-world-worst-performing-advanced-countries-state-g7-european-union-a7817046.html">UK is the worst-performing advanced economy in the world, official figures confirm</a>
+<br> <a href="https://web.archive.org/web/20170630191713/http://www.independent.co.uk/news/business/news/uk-economy-world-worst-performing-advanced-countries-state-g7-european-union-a7817046.html">(archive)</a>
+<br>
 
 <br>
 ISRAEL
