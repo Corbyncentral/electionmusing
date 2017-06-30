@@ -33,6 +33,12 @@ NEGATIVE TACTICS
 <br>
 
 <br>
+SCOTLAND
+<br>
+<a href="https://www.opendemocracy.net/uk/brexitinc/adam-ramsay-peter-geoghegan/dark-money-driving-scottish-tory-surge">The dark money driving the Scottish Tory surge</a> <a href="https://archive.is/lkPbS">(archive)</a>
+<br>
+
+<br>
 BBC
 <br>
 <a href="http://dissidentvoice.org/2017/06/the-bbc-has-betrayed-its-own-rules-of-impartiality-yemen-saudi-arabia-and-the-general-election/">The BBC Has Betrayed Its Own Rules of Impartiality: Yemen, Saudi Arabia and the General Election</a> <a href="https://archive.is/BaW4s">(archive)</a>
