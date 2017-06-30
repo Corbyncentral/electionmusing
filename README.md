@@ -101,6 +101,8 @@ TERROR
 <br>
 <a href="http://www.telegraph.co.uk/news/2016/04/20/border-security-budget-to-fall-by-2-million-theresa-may-confirms/amp/">Border security budget to fall by £2 million, Theresa May confirms</a> <a href="https://archive.is/UfeNr">(archive)</a>
 <br>
+<a href="http://johnpilger.com/articles/terror-in-britain-what-did-the-prime-minister-know">TERROR IN BRITAIN: WHAT DID THE PRIME MINISTER KNOW?</a> <a href="https://archive.is/DDdkF">(archive)</a>
+<br>
 
 
 <br>
