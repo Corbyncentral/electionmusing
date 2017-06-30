@@ -319,13 +319,15 @@ FIRE
 <br>
 
 <br>
-GRENFELL 
+MORE ON GRENFELL 
 <br>
 <a href="https://grenfellsupport.wordpress.com">Grenfell community response and support</a>
 <br>
 <a href="https://grenfellactiongroup.wordpress.com">Grenfell Action Group</a>
 <br>
 <a href="https://grenfellactiongroup.wordpress.com/2016/04/17/will-rbkc-investigate-rock-feilding-mellen/">Will RBKC investigate Rock Feilding-Mellon?</a> <a href="https://archive.is/m1Fkc">(archive)</a>
+<br>
+<a href="http://www.independent.co.uk/property/house-and-home/pets/news/fire-safety-measures-grenfell-tower-sprinklers-retrofitting-fire-service-cuts-independent-panel-a7812646.html?amp">Fire safety independent panel chair advised against retrofitting sprinklers and authored report advocating £200m fire service cuts</a> <a href="https://web.archive.org/web/20170630021051/http://www.independent.co.uk/property/house-and-home/pets/news/fire-safety-measures-grenfell-tower-sprinklers-retrofitting-fire-service-cuts-independent-panel-a7812646.html?amp">(archive)</a>
 <br>
 
 <br>
