@@ -649,7 +649,6 @@ BREXIT
 <br>
 <a href="http://realmedia.press/brexit-minister-supports-removing-asbestos-laws/">BREXIT MINISTER ‘SUPPORTS REMOVING ASBESTOS LAWS’</a> <a href="https://archive.is/FNckJ">(archive)</a>
 <br>
-<br>
 <a href="http://www.independent.co.uk/news/uk/home-news/brexit-boris-johnson-michael-gove-nigel-farage-poll-hated-british-public-char-yougov-a7805466.html">Brexit's architects are hated by British public, chart shows</a> <a href="https://web.archive.org/web/20170629145023/http://www.independent.co.uk/news/uk/home-news/brexit-boris-johnson-michael-gove-nigel-farage-poll-hated-british-public-char-yougov-a7805466.html">(archive)</a>
 <br>
 <a href="http://www.huffingtonpost.co.uk/entry/social-mobility-report-uk-2017_uk_5953ba42e4b0da2c73201de6">Social Mobility Report 2017: Regional Inequalities Widened In Last 20 Years And Fuelled Brexit</a> <a href="http://archive.is/2UaXD">(archive)</a>
