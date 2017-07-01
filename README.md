@@ -855,6 +855,8 @@ CHRIS GRAYLING
 <br>
 <a href="http://www.newstatesman.com/politics/staggers/2015/12/chris-grayling-most-incompetent-member-government">Is Chris Grayling the most incompetent member of the government?</a> <a href="https://archive.is/rKmiu">(archive)</a>
 <br>
+<a href="https://politicalscrapbook.net/2017/06/watch-minister-claims-tories-have-increased-tax-on-the-rich-but-cant-name-a-single-one/amp/">WATCH: MINISTER CLAIMS TORIES HAVE INCREASED TAX ON THE RICH – BUT CAN’T NAME A SINGLE ONE</a> <a href="https://archive.is/b9Ldx">(archive)</a>
+<br>
 
 <br>
 LIZ TRUSS
