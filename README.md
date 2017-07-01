@@ -646,6 +646,8 @@ BREXIT
 <a href="http://www.independent.co.uk/news/business/news/bank-of-england-mark-carney-boris-johnson-brexit-britain-worse-off-a7798551.html">Brexit will make Britain worse off, Bank of England Governor Mark Carney says</a> <a href="https://web.archive.org/web/20170629143605/http://www.independent.co.uk/news/business/news/bank-of-england-mark-carney-boris-johnson-brexit-britain-worse-off-a7798551.html">(archive)</a>
 <br>
 <a href="http://voxpoliticalonline.com/2016/05/21/priti-patel-admits-leave-campaign-agenda-to-reduce-workers-rights-tuc/">Priti Patel admits Leave campaign agenda to reduce workers’ rights – TUC</a> <a href="https://archive.is/f8d5y">(archive)</a>
+<a href="http://realmedia.press/brexit-minister-supports-removing-asbestos-laws/">BREXIT MINISTER ‘SUPPORTS REMOVING ASBESTOS LAWS’</a> <a href="https://archive.is/FNckJ">(archive)</a>
+<br>
 <br>
 <a href="http://www.independent.co.uk/news/uk/home-news/brexit-boris-johnson-michael-gove-nigel-farage-poll-hated-british-public-char-yougov-a7805466.html">Brexit's architects are hated by British public, chart shows</a> <a href="https://web.archive.org/web/20170629145023/http://www.independent.co.uk/news/uk/home-news/brexit-boris-johnson-michael-gove-nigel-farage-poll-hated-british-public-char-yougov-a7805466.html">(archive)</a>
 <br>
