@@ -579,6 +579,8 @@ CORRUPTION ALLEGATIONS
 <br>
 <a href="https://www.channel4.com/news/revealed-inside-the-secretive-tory-election-call-centre">Revealed: Inside the secretive Tory election call centre</a> <a href="https://archive.is/VrZZT">(archive)</a>
 <br>
+<a href="https://amp.theguardian.com/politics/2017/jul/01/brexit-minister-linked-to-group-that-used-loophole-to-channel-435000-to-dup">Brexit minister linked to group that used loophole to channel £435,000 to DUP</a> <a href="https://archive.is/NpCRk">(archive)</a>
+<br>
 
 <br>
 NHS
