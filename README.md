@@ -85,6 +85,8 @@ JEREMY CORBYN
 <br>
 <a href="https://www.thecanary.co/2017/06/25/74257/">Tory MPs lose their shit at Corbyn’s popularity. And blame the BBC for Glastonbury</a> <a href="https://archive.is/CS9yE">(archive)</a>
 <br>
+<a href="https://www.opendemocracy.net/can-europe-make-it/jonas-fossli-gjers/jeremy-corbyn-mainstream-scandinavian-social-democrat">Jeremy Corbyn – a mainstream [Scandinavian] social democrat</a> <a href="https://archive.is/ixU07">(archive)</a>
+<br>
 
 <br>
 TERROR
