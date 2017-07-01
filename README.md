@@ -509,6 +509,8 @@ NASTY PARTY
 <br>
 <a href="http://www.standard.co.uk/news/politics/tory-mp-johnny-mercer-accused-over-3500-expenses-claim-for-five-imacs-a3115271.html">TORY MP Johnny Mercer accused over £3500 expenses claim for five imacs</a> <a href="https://archive.is/NjFL8">(archive)</a>
 <br>
+<a href="http://evolvepolitics.com/tory-mayor-compares-benefit-claimants-to-dogs-theyre-brown-stink-and-cant-speak-a-word-of-english/amp/">Tory Mayor compares benefit claimants to dogs: they’re ‘brown’, ‘stink’ and ‘can’t speak a word of English’</a> <a href="https://archive.is/EhyYX">(archive)</a>
+<br>
 
 <br>
 ORGREAVE
