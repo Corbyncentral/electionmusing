@@ -128,6 +128,8 @@ ARMED FORCES
 <br>
 <a href="http://www.huffingtonpost.co.uk/john-wight/michael-fallon_b_16287142.html">Britain’s Defence Secretary Michael Fallon Is A Nutcase</a> <a href="https://archive.is/Qbi5c">(archive)</a>
 <br>
+<a href="http://www.heraldscotland.com/news/15384890.Pay_cap_for_teachers__nurses_and_police___but_MoD_top_brass_set_for_20__bonuses/">Pay cap for teachers, nurses and police...but MoD top brass set for 20% bonuses</a> <a href="https://archive.is/25LZY">(archive)</a>
+<br>
 
 <br>
 IRA
