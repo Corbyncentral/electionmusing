@@ -111,6 +111,8 @@ TERROR
 <br>
 <a href="http://johnpilger.com/articles/terror-in-britain-what-did-the-prime-minister-know">TERROR IN BRITAIN: WHAT DID THE PRIME MINISTER KNOW?</a> <a href="https://archive.is/DDdkF">(archive)</a>
 <br>
+<a href="https://amp.theguardian.com/uk-news/2017/jul/03/theresa-may-report-foreign-funding-extremists-saudi-arabia">Theresa May sitting on report on foreign funding of UK extremists</a> <a href="https://archive.is/3dinv">(archive)</a>
+<br>
 
 
 <br>
