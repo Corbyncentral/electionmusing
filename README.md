@@ -515,6 +515,8 @@ NASTY PARTY
 <br>
 <a href="http://evolvepolitics.com/tory-mayor-compares-benefit-claimants-to-dogs-theyre-brown-stink-and-cant-speak-a-word-of-english/amp/">Tory Mayor compares benefit claimants to dogs: they’re ‘brown’, ‘stink’ and ‘can’t speak a word of English’</a> <a href="https://archive.is/EhyYX">(archive)</a>
 <br>
+<a href="https://www.thecanary.co/2017/07/03/nurse-wrote-conservative-mp-asking-voted-cut-pay-pathetic-response-video/">A nurse wrote to her Conservative MP asking why he voted to cut her pay. This is his pathetic response</a> <a href="https://archive.is/9dltY">(archive)</a>
+<br>
 
 <br>
 ORGREAVE
