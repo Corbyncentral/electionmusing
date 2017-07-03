@@ -399,6 +399,8 @@ ENERGY
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/theresa-may-energy-bills-capped-uk-households-john-penrose-betray-tory-minister-conservative-prime-a7821581.html">Theresa May has 'betrayed' 14 million UK households after U-turn on energy bills cap, says former Tory minister</a> <a href="https://web.archive.org/web/20170703203409/http://www.independent.co.uk/news/uk/politics/theresa-may-energy-bills-capped-uk-households-john-penrose-betray-tory-minister-conservative-prime-a7821581.html">(archive)</a>
 <br>
+<a href="http://www.independent.co.uk/news/uk/politics/uk-government-pays-6bn-a-year-in-subsidies-to-fossil-fuel-industry-a6730946.html?amp">UK Government 'pays £6bn a year in subsidies to fossil fuel industry'</a> <a href="https://web.archive.org/web/20170703231737/http://www.independent.co.uk/news/uk/politics/uk-government-pays-6bn-a-year-in-subsidies-to-fossil-fuel-industry-a6730946.html?amp">(archive)</a>
+<br>
 
 <br>
 IMMIGRATION
