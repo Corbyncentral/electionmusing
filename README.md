@@ -639,6 +639,8 @@ NHS
 <br>
 <a href="http://www.independent.co.uk/voices/northern-ireland-dup-theresa-may-jeremy-hunt-nhs-cuts-secret-whistleblower-austerity-a7810066.html?amp">As Northern Ireland is handed £1bn by Theresa May, Jeremy Hunt is sneaking in a fresh round of brutal NHS cuts</a> <a href="https://web.archive.org/web/20170629010155/http://www.independent.co.uk/voices/northern-ireland-dup-theresa-may-jeremy-hunt-nhs-cuts-secret-whistleblower-austerity-a7810066.html?amp">(archive)</a>
 <br>
+<a href="http://www.independent.co.uk/voices/cleaners-strike-st-barts-biggest-strike-inside-the-nhs-a7822346.html?amp">One of the biggest NHS strikes in history is about to happen – but you won’t hear about it</a> <a href="https://web.archive.org/web/20170704163226/http://www.independent.co.uk/voices/cleaners-strike-st-barts-biggest-strike-inside-the-nhs-a7822346.html?amp">(archive)</a>
+<br>
 
 <br>
 UN
