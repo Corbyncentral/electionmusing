@@ -349,6 +349,8 @@ MORE ON GRENFELL
 <br>
 <a href="https://www.insidehousing.co.uk/news/grenfell-cladding-was-not-risk-assessed-despite-lfb-warning-51221">Grenfell cladding was not risk assessed despite LFB warning</a> <a href="https://archive.is/ADiAb">(archive)</a>
 <br>
+<a href="http://evolvepolitics.com/corruption-tory-advisor-revealed-as-boss-of-firm-that-made-grenfell-panels-which-failed-all-safety-tests/">CORRUPTION? Tory advisor revealed as boss of firm that made Grenfell panels which failed ALL safety tests</a> <a href="https://archive.is/WDyBq">(archive)</a>
+<br>
 
 <br>
 HOUSING
