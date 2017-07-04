@@ -31,6 +31,8 @@ NEGATIVE TACTICS
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/parliament-summer-holiday-extension-theresa-may-mps-plotting-coup-three-months-house-commons-lords-a7807901.html?amp">Parliament's summer holiday could be extended 'to stop MPs plotting coup against Theresa May'</a> <a href="https://web.archive.org/web/20170628000653/http://www.independent.co.uk/news/uk/politics/parliament-summer-holiday-extension-theresa-may-mps-plotting-coup-three-months-house-commons-lords-a7807901.html?amp">(archive)</a>
 <br>
+<a href="http://www.bbc.co.uk/news/uk-england-northamptonshire-40482600">Ex-police commissioner Adam Simmonds 'broke laws to aid Tories'</a> <a href="https://archive.is/Txov5">(archive)</a>
+<br>
 
 <br>
 SCOTLAND
