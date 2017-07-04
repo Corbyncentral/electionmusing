@@ -353,6 +353,7 @@ MORE ON GRENFELL
 <br>
 <a href="http://evolvepolitics.com/corruption-tory-advisor-revealed-as-boss-of-firm-that-made-grenfell-panels-which-failed-all-safety-tests/">CORRUPTION? Tory advisor revealed as boss of firm that made Grenfell panels which failed ALL safety tests</a> <a href="https://archive.is/WDyBq">(archive)</a>
 <br>
+<a href="https://www.architectsjournal.co.uk/news/scrapped-fire-safety-laws-burdened-industry-official-report/10021327.article#.WVt-OmvkPQ8.twitter">Scrapped fire safety laws 'burdened' builders – official report</a> <a href="https://archive.is/v0PNb">(archive)</a>
 
 <br>
 HOUSING
