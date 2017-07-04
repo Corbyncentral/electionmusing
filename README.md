@@ -533,6 +533,8 @@ NASTY PARTY
 <br>
 <a href="https://www.thecanary.co/2017/07/03/nurse-wrote-conservative-mp-asking-voted-cut-pay-pathetic-response-video/">A nurse wrote to her Conservative MP asking why he voted to cut her pay. This is his pathetic response</a> <a href="https://archive.is/9dltY">(archive)</a>
 <br>
+<a href="https://politicalscrapbook.net/2017/07/tory-students-laughed-about-burning-money-in-front-of-homeless-man-at-posh-party-with-mp/amp/">TORY STUDENTS LAUGHED ABOUT BURNING MONEY IN FRONT OF HOMELESS MAN AT POSH PARTY WITH MP</a> <a href="https://archive.is/YcN6R">(archive)</a>
+<br>
 
 <br>
 ORGREAVE
