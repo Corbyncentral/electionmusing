@@ -347,6 +347,8 @@ MORE ON GRENFELL
 <br>
 <a href="https://www.theguardian.com/uk-news/2017/jun/19/kensington-chelsea-council-has-274m-in-reserves-grenfell-tower-budget-surplus">Kensington and Chelsea council has £274m in reserves</a> <a href="https://archive.is/bscCx">(archive)</a>
 <br>
+<a href="https://www.insidehousing.co.uk/news/grenfell-cladding-was-not-risk-assessed-despite-lfb-warning-51221">Grenfell cladding was not risk assessed despite LFB warning</a> <a href="https://archive.is/ADiAb">(archive)</a>
+<br>
 
 <br>
 HOUSING
