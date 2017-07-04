@@ -679,6 +679,8 @@ BREXIT
 <br>
 <a href="https://brussels.whiterose.ac.uk/wp-content/uploads/2017/05/SPERI-Paper-41-The-Political-Economy-of-Brexit-and-the-UK-s-National-Business-Model-PRINT-2.pdf">The political economy of Brexit and the UK national business model</a> <a href="https://archive.is/d5Noi">(archive)</a>
 <br>
+<a href="http://www.bbc.co.uk/news/amp/40482660">Brexit: Ex-Navy chief warns of lack of boats to police waters</a> <a href="https://archive.is/MJrLL">(archive)</a>
+<br>
 
 <br>
 PANAMA PAPERS AND TAXATION
