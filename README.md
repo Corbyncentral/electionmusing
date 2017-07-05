@@ -852,6 +852,8 @@ AMBER RUDD
 <br>
 <a href="http://www.independent.co.uk/news/uk/home-news/amber-rudd-saudi-arabia-speech-shut-down-claims-nicholas-wilson-a7774126.html">Amber Rudd accused of 'shutting down' rival's speech on arms sales to Saudi Arabia</a> <a href="https://web.archive.org/web/20170629175922/http://www.independent.co.uk/news/uk/home-news/amber-rudd-saudi-arabia-speech-shut-down-claims-nicholas-wilson-a7774126.html">(archive)</a>
 <br>
+<a href="http://www.mirror.co.uk/news/uk-news/tory-home-secretary-amber-rudds-8972936.amp">Tory Home Secretary Amber Rudd involved in string of firms that went bust and owed millions</a> <a href="https://archive.is/Q7m6v">(archive)</a>
+<br>
 
 
 <br>
