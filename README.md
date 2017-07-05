@@ -307,6 +307,8 @@ LAW
 <br>
 <a href="https://www.theguardian.com/law/2013/mar/04/secret-court-hearing-plans-government">Secret court hearing plans pushed through by government</a> <a href="https://archive.is/lzVeb">(archive)</a>
 <br>
+<a href="http://m.huffpost.com/uk/entry/17390988?">Strike A Light - Tory Trade Union Act Is Already Backfiring</a> <a href="https://archive.is/Ru1it">(archive)</a>
+<br>
 
 <br>
 FIRE
