@@ -117,6 +117,8 @@ TERROR
 <br>
 <a href="https://amp.theguardian.com/uk-news/2017/jul/03/theresa-may-report-foreign-funding-extremists-saudi-arabia">Theresa May sitting on report on foreign funding of UK extremists</a> <a href="https://archive.is/3dinv">(archive)</a>
 <br>
+<a href="https://amp.theguardian.com/politics/2017/jul/06/theresa-may-accused-of-double-standards-over-terrorism-funding">Theresa May accused of double standards over terrorism funding</a> <a href="https://archive.is/qOttP">(archive)</a>
+<br>
 
 
 <br>
