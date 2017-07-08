@@ -266,6 +266,8 @@ DISABILITY
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/fit-to-work-wca-tests-mental-health-dwp-work-capability-assessment-benefits-esa-pip-a7623686.html">DWP’s fit-to-work tests ‘cause permanent damage to mental health’, study finds</a> <a href="https://web.archive.org/web/20170628141332/http://www.independent.co.uk/news/uk/politics/fit-to-work-wca-tests-mental-health-dwp-work-capability-assessment-benefits-esa-pip-a7623686.html">(archive)</a>
 <br>
+<a href="http://www.independent.co.uk/news/uk/home-news/jared-o-mara-labour-disabled-mp-eugenics-conservatives-tories-cuts-austerity-benefits-sheffield-a7830611.html?amp">New disabled MP accuses Conservatives of 'eugenics' policies to make disabled people 'suffer and die'</a> <a href="https://web.archive.org/web/20170708224618/http://www.independent.co.uk/news/uk/home-news/jared-o-mara-labour-disabled-mp-eugenics-conservatives-tories-cuts-austerity-benefits-sheffield-a7830611.html?amp">(archive)</a>
+<br>
 
 <br>
 POLICE
