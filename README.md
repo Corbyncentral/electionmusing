@@ -248,6 +248,8 @@ AUSTERITY/WELFARE
 <br>
 <a href="https://amp.theguardian.com/society/2017/jun/29/biggest-ever-study-of-food-banks-warns-use-likely-to-increase">Biggest ever study of food banks warns use likely to increase</a> <a href="https://archive.is/pZbgH">(archive)</a>
 <br>
+<a href="http://blogs.lse.ac.uk/lsereviewofbooks/2016/08/22/book-review-hunger-pains-life-inside-foodbank-britain-by-kayleigh-garthwaite/?platform=hootsuite">Hunger Pains: Life Inside Foodbank Britain, Kayleigh Garthwaite</a> <a href="https://archive.is/Any7g">(archive)</a>
+<br>
 <a href="http://www.independent.co.uk/news/uk/politics/government-public-sector-pay-cap-report-impact-workers-doctors-nhs-prison-guards-police-officers-a7822216.html?amp">Government quietly publishes public sector pay cap report exposing impact on workers</a> <a href="https://web.archive.org/web/20170705163240/http://www.independent.co.uk/news/uk/politics/government-public-sector-pay-cap-report-impact-workers-doctors-nhs-prison-guards-police-officers-a7822216.html?amp">(archive)</a>
 <br>
 
