@@ -366,6 +366,8 @@ MORE ON GRENFELL
 <br>
 <a href="https://www.architectsjournal.co.uk/news/scrapped-fire-safety-laws-burdened-industry-official-report/10021327.article#.WVt-OmvkPQ8.twitter">Scrapped fire safety laws 'burdened' builders – official report</a> <a href="https://archive.is/v0PNb">(archive)</a>
 <br>
+<a href="https://skwawkbox.org/2017/07/08/tory-council-head-deleted-whole-twitter-to-remove-grenfell-tweet-and-these/amp/">Tory council head deleted whole Twitter to remove #Grenfell tweet. And these?</a> <a href="https://archive.is/qfF4G">(archive)</a>
+<br>
 
 <br>
 HOUSING
