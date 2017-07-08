@@ -119,7 +119,8 @@ TERROR
 <br>
 <a href="https://amp.theguardian.com/politics/2017/jul/06/theresa-may-accused-of-double-standards-over-terrorism-funding">Theresa May accused of double standards over terrorism funding</a> <a href="https://archive.is/qOttP">(archive)</a>
 <br>
-
+<a href="https://amp.theguardian.com/uk-news/2017/jul/08/police-cuts-jeopardising-hunt-potential-terrorists">Police cuts ‘jeopardising hunt for potential terrorists’</a> <a href="https://archive.is/vz20x">(archive)</a>
+<br>
 
 <br>
 ARMED FORCES
