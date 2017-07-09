@@ -773,6 +773,12 @@ Labour’s Israel lobby plans to relaunch campaign against Corbyn</a> <a href="h
 <br>
 
 <br>
+YVETTE COOPER
+<br>
+<a href="https://sciscomedia.co.uk/yvette-cooper-imaginary-wheelchair-woman/">Yvette Cooper: imaginary wheelchair woman</a> <a href="https://archive.is/c7AHW">(archive)</a>
+<br>
+
+<br>
 MICHAEL FALLON
 <br>
 <a href="http://www.mirror.co.uk/news/politics/tory-michael-fallon-just-confronted-10418906">Tory Michael Fallon just got ambushed on live TV for spreading 'b*****ks' about Labour</a> <a href="https://archive.is/Fgs8S">(archive)</a>
