@@ -39,6 +39,8 @@ SCOTLAND
 <br>
 <a href="https://www.opendemocracy.net/uk/brexitinc/adam-ramsay-peter-geoghegan/dark-money-driving-scottish-tory-surge">The dark money driving the Scottish Tory surge</a> <a href="https://archive.is/lkPbS">(archive)</a>
 <br>
+<a href="http://www.heraldscotland.com/news/15399282.Tory_MSPs_face_massive_financial_hit_in_double_jobs_crackdown_at_Holyrood/?ref=twtrec">Tory MSPs face massive financial hit in double jobs crackdown at Holyrood</a> <a href="https://archive.is/cJzei">(archive)</a>
+<br>
 
 <br>
 BBC
