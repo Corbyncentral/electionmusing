@@ -178,6 +178,8 @@ DUP
 <br>
 <a href="https://amp.theguardian.com/commentisfree/2017/jun/26/shoddy-dup-deal-cost-theresa-may-more-1bn">This shoddy DUP deal will ultimately cost Theresa May far more than £1bn</a> <a href="https://archive.is/lx6hr">(archive)</a>
 <br>
+<a href="https://www.thecanary.co/2017/07/09/theresa-may-recieved-bad-news-dup-deal-being-put-ultimate-test/">Theresa May has received some bad news about her DUP deal. It’s being put to the ultimate test</a> <a href="https://archive.is/W1O3u">(archive)</a>
+<br>
 
 <br>
 THERESA MAY
