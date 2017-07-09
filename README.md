@@ -777,6 +777,8 @@ YVETTE COOPER
 <br>
 <a href="https://sciscomedia.co.uk/yvette-cooper-imaginary-wheelchair-woman/">Yvette Cooper: imaginary wheelchair woman</a> <a href="https://archive.is/c7AHW">(archive)</a>
 <br>
+<a href="https://www.buzzfeed.com/solomonhughes/yvette-coopers-biggest-donation-comes-from-an-ex-tory-donor">Former Tory Donor Gave Yvette Cooper £75,000 Donation</a> <a href="https://archive.is/LP89b">(archive)</a>
+<br>
 
 <br>
 MICHAEL FALLON
