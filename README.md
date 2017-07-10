@@ -55,6 +55,8 @@ BBC
 <br>
 <a href="http://voxpoliticalonline.com/2016/08/10/bbc-impartiality-in-tatters-as-report-reveals-corporation-relies-on-tories-for-statistics/">BBC impartiality in tatters as report reveals corporation relies on Tories for statistics</a> <a href="https://archive.is/WuV7C">(archive)</a>
 <br>
+<a href="https://www.opendemocracy.net/ourbeeb/oliver-huitson/how-bbc-betrayed-nhs-exclusive-report-on-two-years-of-censorship-and-distorti">How the BBC betrayed the NHS: an exclusive report on two years of censorship and distortion</a> <a href="https://archive.is/vcjwe">(archive)</a>
+<br>
 <a href="http://www.huffingtonpost.co.uk/entry/bbc-question-time-bias-tory-plant_uk_5915562ce4b00f308cf43291">BBC Question Time Accused Of Bias And ‘Tory Plant’ After Opening From Conservative Councillor</a> <a href="https://archive.is/RcsAh">(archive)</a>
 <br>
 <a href="http://theconversation.com/hard-evidence-how-biased-is-the-bbc-17028">Hard Evidence: how biased is the BBC?</a> <a href="https://archive.is/lVJOh">(archive)</a>
