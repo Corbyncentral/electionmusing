@@ -380,6 +380,8 @@ MORE ON GRENFELL
 <br>
 <a href="https://skwawkbox.org/2017/07/08/tory-council-head-deleted-whole-twitter-to-remove-grenfell-tweet-and-these/amp/">Tory council head deleted whole Twitter to remove #Grenfell tweet. And these?</a> <a href="https://archive.is/qfF4G">(archive)</a>
 <br>
+<a href="https://www.thecanary.co/2017/07/10/exclusive-citizens-allege-council-deleted-grenfell-files-website-fire-investigations-widen/">EXCLUSIVE: Citizens allege council deleted Grenfell files from website as fire investigations widen</a> <a href="https://archive.is/t8xNd">(archive)</a>
+<br>
 
 <br>
 HOUSING
