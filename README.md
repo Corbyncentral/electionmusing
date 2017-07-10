@@ -562,6 +562,8 @@ NASTY PARTY
 <br>
 <a href="https://politicalscrapbook.net/2017/07/tory-students-laughed-about-burning-money-in-front-of-homeless-man-at-posh-party-with-mp/amp/">TORY STUDENTS LAUGHED ABOUT BURNING MONEY IN FRONT OF HOMELESS MAN AT POSH PARTY WITH MP</a> <a href="https://archive.is/YcN6R">(archive)</a>
 <br>
+<a href="http://m.huffpost.com/uk/entry/uk_59638608e4b02e9bdb0e2c77?">Tory MP Anne Marie Morris Recorded Saying Brexit No Deal Is A ‘N***** In A Woodpile’</a> <a href="https://archive.is/ofwPj">(archive)</a>
+<br>
 
 <br>
 ORGREAVE
