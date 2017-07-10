@@ -308,6 +308,8 @@ PRISONS
 <br>
 <a href="https://amp.theguardian.com/society/2017/jun/21/privatised-probation-programme-could-be-dropped-with-negligible-impact-report">Privatised probation programme 'could be dropped with negligible impact'</a>  <a href="https://archive.is/iVf42">(archive)</a>
 <br>
+<a href="http://www.independent.co.uk/news/uk/politics/g4s-could-lose-contract-for-child-prison-where-guards-used-drugs-and-dished-out-racist-abuse-10321447.html?amp">G4S could lose contract for child prison where guards used drugs and dished out racist abuse</a> <a href="https://web.archive.org/web/20170710211759/http://www.independent.co.uk/news/uk/politics/g4s-could-lose-contract-for-child-prison-where-guards-used-drugs-and-dished-out-racist-abuse-10321447.html?amp">(archive)</a>
+<br>
 
 <br>
 LAW
