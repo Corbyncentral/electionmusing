@@ -448,6 +448,8 @@ IMMIGRATION
 <br>
 <a href="http://www.independent.co.uk/student/news/theresa-may-wrongly-deported-48000-students-after-bbc-panorama-exposes-toeic-scam-a6958286.html">Theresa May wrongly deported 48,000 students after BBC Panorama exposes toxic scam.</a> <a href="https://web.archive.org/web/20170628185042/http://www.independent.co.uk/student/news/theresa-may-wrongly-deported-48000-students-after-bbc-panorama-exposes-toeic-scam-a6958286.html">(archive)</a>
 <br>
+<a href="https://amp.theguardian.com/global-development/2017/jul/07/war-and-violence-drive-majority-of-people-fleeing-to-europe-by-sea-not-economics">War and violence drive 80% of people fleeing to Europe by sea, not economics</a> <a href="https://archive.is/cZWG8">(archive)</a>
+<br>
 
 <br>
 RIGHT WING
