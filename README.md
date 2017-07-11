@@ -382,6 +382,8 @@ MORE ON GRENFELL
 <br>
 <a href="https://www.thecanary.co/2017/07/10/exclusive-citizens-allege-council-deleted-grenfell-files-website-fire-investigations-widen/">EXCLUSIVE: Citizens allege council deleted Grenfell files from website as fire investigations widen</a> <a href="https://archive.is/t8xNd">(archive)</a>
 <br>
+<a href="http://anotherangryvoice.blogspot.co.uk/2017/07/the-depraved-tory-narrative-that.html?m=1">Painting the establishment class as the true victims of Grenfell tower is depraved Tory propaganda</a> <a href="https://archive.is/CDthf">(archive)</a>
+<br>
 
 <br>
 HOUSING
