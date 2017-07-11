@@ -972,6 +972,8 @@ JACOB REES-MOGG
 <br>
 <a href="https://www.opendemocracy.net/ournhs/alan-taman/tories-filibuster-to-stall-labour's-nhs-bill">Tories filibuster to stall Labour's NHS Bill</a> <a href="https://archive.is/v9ieQ">(archive)</a>
 <br>
+<a href="https://www.theguardian.com/politics/2017/jul/09/jacob-rees-mogg-denies-potential-conflict-of-interest-fund-links">Jacob Rees-Mogg denies potential conflict of interest over fund links</a> <a href="https://archive.is/rvFQZ">(archive)</a>
+<br>
 
 <br>
 MISCELLANEOUS 
