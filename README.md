@@ -728,6 +728,8 @@ BREXIT
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/brexit-latest-news-vote-leave-director-dominic-cummings-leave-eu-error-nhs-350-million-lie-bus-a7822386.html?amp">Brexit: Vote Leave chief who created £350m NHS claim on bus admits leaving EU could be 'an error'</a> <a href="https://web.archive.org/web/20170704223502/http://www.independent.co.uk/news/uk/politics/brexit-latest-news-vote-leave-director-dominic-cummings-leave-eu-error-nhs-350-million-lie-bus-a7822386.html?amp">(archive)</a>
 <br>
+<a href="https://amp.businessinsider.com/japan-brexit-note-to-britain-2016-9">You should read Japan's Brexit note to Britain — it's brutal</a> <a href="https://archive.is/0isj8">(archive)</a>
+<br>
 
 <br>
 PANAMA PAPERS AND TAXATION
