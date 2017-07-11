@@ -572,6 +572,8 @@ NASTY PARTY
 <br>
 <a href="http://m.devonlive.com/anne-marie-morris-distances-herself-from-vile-racist-remark-made-by-her-agent-at-hustings-event/story-30365953-detail/story.html">Tory candidate distances herself from 'racist remark' made by her agent and partner at hustings</a> <a href="https://archive.is/PYyxJ">(archive)</a>
 <br>
+<a href="http://evolvepolitics.com/tory-mp-public-sector-pay-cap-letter/">Tory MP tells constituent worried about public sector pay cap that he’s ‘talking out of his arsehole’</a> <a href="https://archive.is/jgstU">(archive)</a>
+<br>
 
 <br>
 ORGREAVE
