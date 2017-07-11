@@ -974,6 +974,10 @@ JACOB REES-MOGG
 <br>
 <a href="https://www.theguardian.com/politics/2017/jul/09/jacob-rees-mogg-denies-potential-conflict-of-interest-fund-links">Jacob Rees-Mogg denies potential conflict of interest over fund links</a> <a href="https://archive.is/rvFQZ">(archive)</a>
 <br>
+<a href="http://www.independent.co.uk/news/people/tory-backbench-mp-jacob-rees-mogg-failed-to-declare-interests-9923362.html">Leading Tory backbench MP Jacob Rees-Mogg 'failed to declare interests'</a> <a href="https://web.archive.org/web/20170711031709/http://www.independent.co.uk/news/people/tory-backbench-mp-jacob-rees-mogg-failed-to-declare-interests-9923362.html">(archive)</a>
+<br>
+
+
 
 <br>
 MISCELLANEOUS 
