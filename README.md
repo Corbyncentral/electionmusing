@@ -570,6 +570,8 @@ NASTY PARTY
 <br>
 <a href="http://m.huffpost.com/uk/entry/uk_59638608e4b02e9bdb0e2c77?">Tory MP Anne Marie Morris Recorded Saying Brexit No Deal Is A ‘N***** In A Woodpile’</a> <a href="https://archive.is/ofwPj">(archive)</a>
 <br>
+<a href="http://m.devonlive.com/anne-marie-morris-distances-herself-from-vile-racist-remark-made-by-her-agent-at-hustings-event/story-30365953-detail/story.html">Tory candidate distances herself from 'racist remark' made by her agent and partner at hustings</a> <a href="https://archive.is/PYyxJ">(archive)</a>
+<br>
 
 <br>
 ORGREAVE
