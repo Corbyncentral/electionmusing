@@ -476,7 +476,7 @@ RIGHT WING
 
 
 <br>
-EMPLOYMENT
+EMPLOYMENT AND WORKERS' RIGHTS
 <br>
 <a href="http://www.independent.co.uk/voices/tories-employment-statistics-unemployment-general-election-jobs-reality-different-a7726666.html">The Tories will tell you they're the party that gives the nation proper employment – but even their advisers don't agree</a> <a href="https://web.archive.org/web/20170628191456/http://www.independent.co.uk/voices/tories-employment-statistics-unemployment-general-election-jobs-reality-different-a7726666.html">(archive)</a>
 <br>
@@ -491,6 +491,10 @@ EMPLOYMENT
 <a href="http://www.bbc.co.uk/news/business-36735004">New government pension rules open the door to rip-offs</a> <a href="https://archive.is/IN9Ue">(archive)</a>
 <br>
 <a href="https://politicalscrapbook.net/2017/06/10-tory-mps-who-spoke-out-against-the-pay-cap-and-then-voted-for-it/amp/">10 TORY MPS WHO SPOKE OUT AGAINST THE PAY CAP – AND THEN VOTED FOR IT</a> <a href="https://archive.is/x9SxF">(archive)</a>
+<br>
+<a href="https://amp.theguardian.com/business/2017/mar/06/sick-parcelforce-couriers-royal-mail-mands-john-lewis-hamleys-dpd">Sick Parcelforce couriers can be charged up to £250 if they can't find cover</a> <a href="https://archive.is/EgxM5">(archive)</a>
+<br>
+<a href="http://www.mirror.co.uk/news/politics/theresa-mays-workers-rights-pledge-10778348.amp">Theresa May's workers rights pledge a sham as she refuses to ban zero-hours contracts and big tribunal fees</a> <a href="https://archive.is/Taw09">(archive)</a>
 <br>
 
 <br>
