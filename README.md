@@ -542,6 +542,8 @@ NASTY PARTY
 <br>
 <a href="http://www.independent.co.uk/voices/letters/jeremy-corbyn-theresa-may-taxation-social-media-general-election-trident-a7739111.html">Theresa May knows the Tories are still 'the nasty party.'</a> <a href="https://web.archive.org/web/20170628203358/http://www.independent.co.uk/voices/letters/jeremy-corbyn-theresa-may-taxation-social-media-general-election-trident-a7739111.html">(archive)</a>
 <br>
+<a href="https://www.thecanary.co/2017/07/12/daily-mail-just-smeared-every-corbyn-supporter-labour-done-something-extraordinary-images/">The Daily Mail just smeared every Corbyn supporter. So Labour has done something extraordinary</a> <a href="https://archive.is/F9Uyi">(archive)</a>
+<br>
 <a href="http://archive.is/ZGHEA">ARCHIVE Fury after Tory councillor posts offensive tweets of colonial-era Africa with joking references to spears and loin cloths</a>
 <br>
 <a href="http://www.manchestereveningnews.co.uk/news/greater-manchester-news/tory-councillor-charged-making-distributing-13194771">Former Tory councillor charged with making and distributing indecent images of children</a> <a href="https://archive.is/VE2Zq">(archive)</a>
