@@ -151,6 +151,13 @@ ARMED FORCES
 <br>
 
 <br>
+WAR
+<br>
+<a href="https://britishempireexposed.wordpress.com/2016/09/24/britains-role-in-yemen/amp/">Britain’s role in Yemen</a> <a href="https://archive.is/2v6L3">(archive)</a>
+<br>
+
+
+<br>
 IRA
 <br>
 <a href="http://www.belfasttelegraph.co.uk/sunday-life/conservative-club-honours-ira-bomber-gerry-mcgivern-by-lowering-union-flag-to-half-mast-34357680.html">Conservative Club honours IRA bomber Gerry McGivern by lowering Union flag to half mast</a> <a href="https://archive.is/pQvhj">(archive)</a>
