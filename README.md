@@ -756,6 +756,8 @@ BREXIT
 <br>
 <a href="https://amp.businessinsider.com/japan-brexit-note-to-britain-2016-9">You should read Japan's Brexit note to Britain — it's brutal</a> <a href="https://archive.is/0isj8">(archive)</a>
 <br>
+<a href="https://amp.theguardian.com/politics/2017/jul/12/eu-warns-brexit-talks-could-fail-after-johnsons-go-whistle-remarks">EU says Brexit talks could fail after Johnson's 'go whistle' remarks</a> <a href="https://archive.is/Wnwoj">(archive)</a>
+<br>
 
 <br>
 PANAMA PAPERS AND TAXATION
