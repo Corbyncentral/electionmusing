@@ -980,6 +980,12 @@ SAJID JAVID
 <br>
 
 <br>
+JUSTINE GREENING
+<br>
+<a href="http://www.mirror.co.uk/news/politics/flustered-education-secretary-justine-greening-10778378.amp">Flustered Education Secretary Justine Greening leaves important government documents in the street</a> <a href="https://archive.is/RneYp">(archive)</a>
+<br>
+
+<br>
 JACOB REES-MOGG
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/gregory-lauder-frost-exposed-the-tory-fringe-group-leader-with-nazi-sympathies-8755093.html?amp">Gregory Lauder-Frost exposed: The Tory fringe group leader with Nazi sympathies</a> <a href="https://web.archive.org/web/20170708172944/http://www.independent.co.uk/news/uk/politics/gregory-lauder-frost-exposed-the-tory-fringe-group-leader-with-nazi-sympathies-8755093.html?amp">(archive)</a>
