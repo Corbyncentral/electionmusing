@@ -518,6 +518,8 @@ EDUCATION
 <br>
 <a href="https://amp.theguardian.com/education/2017/jul/08/almost-a-quarter-of-teachers-who-have-qualified-since-2011-have-left-profession">Almost a quarter of teachers who have qualified since 2011 have left profession</a> <a href="https://archive.is/XiOoz">(archive)</a>
 <br>
+<a href="https://www.thecanary.co/2017/07/12/children-young-10-judged-secret-system-teachers-not-allowed-see/">Children as young as 10 are being judged by a secret system that teachers are not allowed to see</a> <a href="https://archive.is/f3gf0">(archive)</a>
+<br>
 
 <br>
 RAILWAYS
