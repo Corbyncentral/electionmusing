@@ -654,6 +654,8 @@ CORRUPTION ALLEGATIONS
 <br>
 <a href="https://amp.theguardian.com/politics/2017/jul/01/brexit-minister-linked-to-group-that-used-loophole-to-channel-435000-to-dup">Brexit minister linked to group that used loophole to channel £435,000 to DUP</a> <a href="https://archive.is/NpCRk">(archive)</a>
 <br>
+<a href="http://nicholaswilson.com/lord-hague-nissan-hsbc-and-tory-corruption/">Lord Hague, Nissan, HSBC and Tory corruption</a> <a href="https://archive.is/O5c7u">(archive)</a>
+<br>
 
 <br>
 NHS
