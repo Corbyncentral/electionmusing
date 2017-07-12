@@ -692,6 +692,8 @@ NHS
 <br>
 <a href="http://www.mirror.co.uk/news/uk-news/selling-nhs-profit-full-list-4646154.amp">'Selling off NHS for profit': Full list of MPs with links to private healthcare firms</a> <a href="https://archive.is/y2Dxm">(archive)</a>
 <br>
+<a href="https://amp.theguardian.com/society/2017/jul/11/what-is-the-contaminated-blood-scandal">What is the contaminated blood scandal?</a> <a href="https://archive.is/g2kQR">(archive)</a>
+<br>
 
 <br>
 UN
