@@ -594,6 +594,8 @@ NASTY PARTY
 <br>
 <a href="http://evolvepolitics.com/darlington-conservative-candidate-under-pressure-to-stand-down-after-absolutely-shocking-rape-blog-post-emerges/">Darlington Conservative candidate under pressure to stand down after “absolutely shocking” rape blog post emerges</a> <a href="https://archive.is/UTEvD">(archive)</a>
 <br>
+<a href="http://www.mirror.co.uk/news/uk-news/tory-mp-tells-autistic-man-4166980.amp">Tory MP tells autistic man: Keep quiet if you have mental issues</a> <a href="https://web.archive.org/web/20170712221347/http://www.mirror.co.uk/news/uk-news/tory-mp-tells-autistic-man-4166980.amp">(archive)</a>
+<br>
 
 <br>
 ORGREAVE
