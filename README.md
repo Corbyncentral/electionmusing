@@ -97,6 +97,8 @@ JEREMY CORBYN
 <br>
 <a href="https://theintercept.com/2016/01/21/the-seven-stages-of-establishment-backlash-corbynsanders-edition/">The Seven Stages of Establishment Backlash Corbyn/Sanders Edition</a> <a href="https://archive.is/KfQjc">(archive)</a>
 <br>
+<a href="http://voxpoliticalonline.com/2017/07/10/right-wing-lies-jeremy-corbyn-did-not-shout-fck-the-rich-at-a-rally/">Right-wing lies: Jeremy Corbyn did NOT shout ‘F*ck the rich’ at a rally</a> <a href="https://archive.is/YzvgA">(archive)</a>
+<br>
 
 <br>
 TERROR
