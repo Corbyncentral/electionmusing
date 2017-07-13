@@ -153,6 +153,8 @@ ARMED FORCES
 <br>
 WAR
 <br>
+<a href="http://theconversation.com/explained-how-the-arab-spring-led-to-an-increasingly-vicious-civil-war-in-yemen-55968">Explained: how the Arab Spring led to an increasingly vicious civil war in Yemen</a> <a href="https://archive.is/22gvt">(archive)</a>
+<br>
 <a href="https://britishempireexposed.wordpress.com/2016/09/24/britains-role-in-yemen/amp/">Britain’s role in Yemen</a> <a href="https://archive.is/2v6L3">(archive)</a>
 <br>
 
