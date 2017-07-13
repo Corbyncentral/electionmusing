@@ -773,6 +773,8 @@ BREXIT
 <br>
 <a href="https://amp.theguardian.com/politics/2017/jul/12/eu-warns-brexit-talks-could-fail-after-johnsons-go-whistle-remarks">EU says Brexit talks could fail after Johnson's 'go whistle' remarks</a> <a href="https://archive.is/Wnwoj">(archive)</a>
 <br>
+<a href="http://www.independent.co.uk/news/uk/politics/brexit-national-audit-office-amyas-morse-customs-check-computer-it-system-a7837811.html?amp">Brexit: Government's new customs IT system heading for £34bn 'horror show', watchdog warns</a> <a href="https://web.archive.org/web/20170713005638/http://www.independent.co.uk/news/uk/politics/brexit-national-audit-office-amyas-morse-customs-check-computer-it-system-a7837811.html?amp">(archive)</a>
+<br>
 
 <br>
 PANAMA PAPERS AND TAXATION
