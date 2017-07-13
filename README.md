@@ -607,6 +607,8 @@ NASTY PARTY
 <br>
 <a href="http://www.mirror.co.uk/news/uk-news/tory-mp-tells-autistic-man-4166980.amp">Tory MP tells autistic man: Keep quiet if you have mental issues</a> <a href="https://web.archive.org/web/20170712221347/http://www.mirror.co.uk/news/uk-news/tory-mp-tells-autistic-man-4166980.amp">(archive)</a>
 <br>
+<a href="http://www.mirror.co.uk/news/politics/tory-councillor-suspended-over-racist-9787227.amp">Tory councillor suspended over 'racist' retweet comparing Diane Abbott to an ape wearing lipstick</a> <a href="https://web.archive.org/web/20170713011208/http://www.mirror.co.uk/news/politics/tory-councillor-suspended-over-racist-9787227.amp">(archive)</a>
+<br>
 
 <br>
 ORGREAVE
