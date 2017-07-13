@@ -1050,6 +1050,8 @@ Journalist's Guide To Opinion Polls</a>
 <br>
 <a href="https://amp.theguardian.com/politics/2017/jun/20/deadlier-than-terrorism-right-fatal-obsession-red-tape-deregulation-grenfell-tower">‘Deadlier than terrorism’ – the right’s fatal obsession with red tape</a>
 <br>
+<a href="http://www.globaljustice.org.uk/who-we-are">Global Justice Now</a>
+<br>
 
 <br>
 SUPPORTING LABOUR
