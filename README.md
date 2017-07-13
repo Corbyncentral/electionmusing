@@ -157,6 +157,8 @@ WAR
 <br>
 <a href="https://britishempireexposed.wordpress.com/2016/09/24/britains-role-in-yemen/amp/">Britain’s role in Yemen</a> <a href="https://archive.is/2v6L3">(archive)</a>
 <br>
+<a href="https://www.theguardian.com/uk-news/2016/sep/08/britains-secret-wars-oman">Britain's secret wars</a> <a href="https://archive.is/bVlZK">(archive)</a>
+<br>
 
 
 <br>
