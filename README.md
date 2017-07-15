@@ -611,6 +611,9 @@ NASTY PARTY
 <br>
 <a href="http://www.mirror.co.uk/news/politics/tory-councillor-suspended-over-racist-9787227.amp">Tory councillor suspended over 'racist' retweet comparing Diane Abbott to an ape wearing lipstick</a> <a href="https://web.archive.org/web/20170713011208/http://www.mirror.co.uk/news/politics/tory-councillor-suspended-over-racist-9787227.amp">(archive)</a>
 <br>
+<a href="https://amp.theguardian.com/politics/2017/apr/25/conservative-party-police-bullying-report-elliott-johnson">Conservative party ignored police requests to hand over internal bullying report</a> <a href="https://archive.is/G9lKQ">(archive)</a>
+<br>
+
 
 <br>
 ORGREAVE
