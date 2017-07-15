@@ -728,6 +728,8 @@ NHS
 <br>
 <a href="https://amp.theguardian.com/society/2017/jul/11/what-is-the-contaminated-blood-scandal">What is the contaminated blood scandal?</a> <a href="https://archive.is/g2kQR">(archive)</a>
 <br>
+<a href="https://amp.theguardian.com/commentisfree/2017/jul/13/students-nursing-political-self-harm-training-nhs">Driving students away from nursing is a spectacular act of political self-harm</a> <a href="https://archive.is/io9UZ">(archive)</a>
+<br>
 
 <br>
 UN
