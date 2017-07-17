@@ -931,6 +931,8 @@ PHILIP HAMMOND
 <br>
 <a href="http://www.dailypost.co.uk/news/north-wales-news/chancellor-philip-hammond-dodges-question-13119536">Chancellor Philip Hammond dodges question about housing firm he has shares in</a> <a href="https://archive.is/3BfjF">(archive)</a>
 <br>
+<a href="http://evolvepolitics.com/philip-nurses-overpaid-hammond-rakes-10000-month-rent-whilst-living-rent-free-off-taxpayer/">Philip ‘nurses are overpaid’ Hammond rakes in £10k a month in rent whilst living rent-free off the taxpayer</a> <a href="https://archive.is/iI9xu">(archive)</a>
+<br>
 
 <br>
 LIAM FOX
