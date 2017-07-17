@@ -297,6 +297,8 @@ DISABILITY
 <br>
 <a href="http://www.independent.co.uk/news/uk/home-news/jared-o-mara-labour-disabled-mp-eugenics-conservatives-tories-cuts-austerity-benefits-sheffield-a7830611.html?amp">New disabled MP accuses Conservatives of 'eugenics' policies to make disabled people 'suffer and die'</a> <a href="https://web.archive.org/web/20170708224618/http://www.independent.co.uk/news/uk/home-news/jared-o-mara-labour-disabled-mp-eugenics-conservatives-tories-cuts-austerity-benefits-sheffield-a7830611.html?amp">(archive)</a>
 <br>
+<a href="http://evolvepolitics.com/new-tory-rules-disabled-universal-credit-claimants-get-job-lose-money-year/">New Tory rules for Disabled Universal Credit claimants: Get a job or lose all money for a year</a> <a href="https://archive.is/BmzWl">(archive)</a>
+<br>
 
 <br>
 POLICE
