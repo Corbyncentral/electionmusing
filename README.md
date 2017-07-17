@@ -992,6 +992,8 @@ DAVID DAVIS
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/mps-david-davis-sexist-texts-leaked-diane-abbott-a7576516.html">Labour MPs brand David Davis 'sexist' and 'disgusting' following leaked texts about Diane Abbott</a> <a href="https://web.archive.org/web/20170629182734/http://www.independent.co.uk/news/uk/politics/mps-david-davis-sexist-texts-leaked-diane-abbott-a7576516.html">(archive)</a>
 <br>
+<a href="http://www.independent.co.uk/news/uk/politics/david-davis-thick-as-mince-lazy-as-a-toad-dominic-cummings-a7845911.html?amp">David Davis is as 'thick as mince' and as 'lazy as a toad', says Vote Leave chief</a> <a href="https://web.archive.org/web/20170717205457/http://www.independent.co.uk/news/uk/politics/david-davis-thick-as-mince-lazy-as-a-toad-dominic-cummings-a7845911.html?amp">(archive)</a>
+<br>
 
 <br>
 CHRIS GRAYLING
