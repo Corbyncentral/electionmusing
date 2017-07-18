@@ -740,6 +740,8 @@ NHS
 <br>
 <a href="https://www.thecanary.co/2017/07/17/jeremy-hunt-ashamed-despicable-attack-nhs-staff/">Jeremy Hunt should be ashamed of this despicable attack on NHS staff</a> <a href="https://web.archive.org/web/20170717181255/https://www.thecanary.co/2017/07/17/jeremy-hunt-ashamed-despicable-attack-nhs-staff/">(archive)</a>
 <br>
+<a href="https://amp.theguardian.com/society/2016/feb/08/us-firms-look-to-capitalise-as-nhs-becomes-increasingly-privatised">US firms look to capitalise as NHS becomes increasingly privatised</a> <a href="https://archive.is/ZJexw">(archive)</a>
+<br>
 
 <br>
 UN
