@@ -131,6 +131,9 @@ TERROR
 <br>
 <a href="https://amp.theguardian.com/uk-news/2017/jul/08/police-cuts-jeopardising-hunt-potential-terrorists">Police cuts ‘jeopardising hunt for potential terrorists’</a> <a href="https://archive.is/vz20x">(archive)</a>
 <br>
+<a href="https://amp.theguardian.com/uk-news/2017/jul/18/police-missing-terrorist-tip-offs-lord-condon-because-of-cuts-says-former-met-chief">Police missing terrorist tip-offs because of cuts, says former Met chief</a> <a href="https://archive.is/KEZ2J">(archive)</a>
+<br>
+
 
 <br>
 ARMED FORCES
