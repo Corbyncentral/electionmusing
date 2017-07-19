@@ -354,6 +354,8 @@ LAW
 <br>
 <a href="http://m.huffpost.com/uk/entry/17390988?">Strike A Light - Tory Trade Union Act Is Already Backfiring</a> <a href="https://archive.is/Ru1it">(archive)</a>
 <br>
+<a href="http://evolvepolitics.com/the-tories-are-literally-arguing-that-12-year-old-child-rape-victims-asked-to-be-raped/">The Tories are literally arguing that 12-year-old child rape victims asked to be raped</a> <a href="https://archive.is/LVaVX">(archive)</a>
+<br>
 
 <br>
 FIRE
