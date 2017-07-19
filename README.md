@@ -290,6 +290,8 @@ AUSTERITY/WELFARE
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/government-public-sector-pay-cap-report-impact-workers-doctors-nhs-prison-guards-police-officers-a7822216.html?amp">Government quietly publishes public sector pay cap report exposing impact on workers</a> <a href="https://web.archive.org/web/20170705163240/http://www.independent.co.uk/news/uk/politics/government-public-sector-pay-cap-report-impact-workers-doctors-nhs-prison-guards-police-officers-a7822216.html?amp">(archive)</a>
 <br>
+<a href="http://www.independent.co.uk/news/uk/home-news/life-expectancy-uk-professor-sir-michael-marmot-leveled-off-deeply-concerned-a7846221.html?amp">Rise in life expectancy has stalled since Tories introduced austerity in 2010, study finds</a> <a href="https://web.archive.org/web/20170719130124/http://www.independent.co.uk/news/uk/home-news/life-expectancy-uk-professor-sir-michael-marmot-leveled-off-deeply-concerned-a7846221.html?amp">(archive)</a>
+<br>
 
 <br>
 DISABILITY
