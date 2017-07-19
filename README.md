@@ -503,6 +503,8 @@ IMMIGRATION
 <br>
 <a href="https://www.economist.com/blogs/graphicdetail/2017/07/daily-chart-6">Why Europe needs more migrants</a> <a href="https://archive.is/16G6Z">(archive)</a>
 <br>
+<a href="https://amp.theguardian.com/uk-news/2017/jul/18/home-office-has-no-data-on-eu-migrants-in-work-suggests-minister">Home Office volunteers no data on EU migrants in work</a> <a href="https://archive.is/Esl31">(archive)</a>
+<br>
 
 
 <br>
