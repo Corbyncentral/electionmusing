@@ -35,6 +35,8 @@ NEGATIVE TACTICS
 <br>
 <a href="http://evolvepolitics.com/tories-facing-legal-action-using-unauthorised-nme-image-latest-corbyn-attack-ad/">The Tories are facing legal action after using unauthorised NME image on their latest Corbyn attack ad</a> <a href="https://archive.is/IbJLa">(archive)</a>
 <br>
+<a href="http://www.mirror.co.uk/news/politics/tories-blocked-online-petitions-westminster-10818705.amp">The Tories have blocked online petitions for Westminster debates until at least September. Here's how</a> <a href="https://web.archive.org/web/20170719124204/http://www.mirror.co.uk/news/politics/tories-blocked-online-petitions-westminster-10818705.amp">(archive)</a>
+<br>
 
 <br>
 SCOTLAND
