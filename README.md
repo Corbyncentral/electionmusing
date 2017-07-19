@@ -214,6 +214,9 @@ DUP
 <br>
 <a href="https://www.thecanary.co/2017/07/17/the-tories-have-changed-the-rules-to-keep-the-dups-dark-money-secret/">The Tories have changed the rules to keep the DUP’s dark money secret</a> <a href="https://archive.is/gY09g">(archive)</a>
 <br>
+<a href="https://stv.tv/amp/1393899-devolved-governments-formally-object-to-tories-dup-deal/">Devolved governments formally object to Tories' DUP deal</a> <a href="https://archive.is/qiiMi">(archive)</a>
+<br>
+
 
 <br>
 THERESA MAY
