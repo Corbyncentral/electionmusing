@@ -154,6 +154,8 @@ ARMED FORCES
 <br>
 <a href="http://www.heraldscotland.com/news/15384890.Pay_cap_for_teachers__nurses_and_police___but_MoD_top_brass_set_for_20__bonuses/">Pay cap for teachers, nurses and police...but MoD top brass set for 20% bonuses</a> <a href="https://archive.is/25LZY">(archive)</a>
 <br>
+<a href="https://www.thecanary.co/2016/07/18/truth-trident-shocking-fact-turn-us-paying-nukes/">The truth about Trident: the shocking fact that would turn us all against paying for nukes</a> <a href="https://web.archive.org/web/20170719112104/https://www.thecanary.co/2016/07/18/truth-trident-shocking-fact-turn-us-paying-nukes/">(archive)</a>
+<br>
 
 <br>
 WAR
