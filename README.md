@@ -498,6 +498,9 @@ IMMIGRATION
 <br>
 <a href="https://amp.theguardian.com/global-development/2017/jul/07/war-and-violence-drive-majority-of-people-fleeing-to-europe-by-sea-not-economics">War and violence drive 80% of people fleeing to Europe by sea, not economics</a> <a href="https://archive.is/cZWG8">(archive)</a>
 <br>
+<a href="https://www.economist.com/blogs/graphicdetail/2017/07/daily-chart-6">Why Europe needs more migrants</a> <a href="https://archive.is/16G6Z">(archive)</a>
+<br>
+
 
 <br>
 RIGHT WING
