@@ -308,6 +308,8 @@ DISABILITY
 <br>
 <a href="http://evolvepolitics.com/new-tory-rules-disabled-universal-credit-claimants-get-job-lose-money-year/">New Tory rules for Disabled Universal Credit claimants: Get a job or lose all money for a year</a> <a href="https://archive.is/BmzWl">(archive)</a>
 <br>
+<a href="https://amp.theguardian.com/society/2017/jul/19/wheelchair-pay-yourself-disabled-people-crowdfunding">Need a wheelchair? Pay for it yourself</a> <a href="https://archive.is/ybYYm">(archive)</a>
+<br>
 
 <br>
 POLICE
