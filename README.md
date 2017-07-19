@@ -348,6 +348,8 @@ PRISONS
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/g4s-could-lose-contract-for-child-prison-where-guards-used-drugs-and-dished-out-racist-abuse-10321447.html?amp">G4S could lose contract for child prison where guards used drugs and dished out racist abuse</a> <a href="https://web.archive.org/web/20170710211759/http://www.independent.co.uk/news/uk/politics/g4s-could-lose-contract-for-child-prison-where-guards-used-drugs-and-dished-out-racist-abuse-10321447.html?amp">(archive)</a>
 <br>
+<a href="http://www.independent.co.uk/news/uk/home-news/prison-officers-strike-ban-permanent-industrial-action-home-office-high-court-win-prison-officers-a7848346.html?amp">Prison officers permanently banned from striking after Government wins High Court bid</a> <a href="https://web.archive.org/web/20170719170313/http://www.independent.co.uk/news/uk/home-news/prison-officers-strike-ban-permanent-industrial-action-home-office-high-court-win-prison-officers-a7848346.html?amp">(archive)</a>
+<br>
 
 <br>
 LAW
