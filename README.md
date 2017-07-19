@@ -33,6 +33,8 @@ NEGATIVE TACTICS
 <br>
 <a href="http://www.bbc.co.uk/news/uk-england-northamptonshire-40482600">Ex-police commissioner Adam Simmonds 'broke laws to aid Tories'</a> <a href="https://archive.is/Txov5">(archive)</a>
 <br>
+<a href="http://evolvepolitics.com/tories-facing-legal-action-using-unauthorised-nme-image-latest-corbyn-attack-ad/">The Tories are facing legal action after using unauthorised NME image on their latest Corbyn attack ad</a> <a href="https://archive.is/IbJLa">(archive)</a>
+<br>
 
 <br>
 SCOTLAND
