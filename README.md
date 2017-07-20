@@ -1097,6 +1097,8 @@ JACOB REES-MOGG
 <br>
 <a href="http://www.independent.co.uk/news/people/tory-backbench-mp-jacob-rees-mogg-failed-to-declare-interests-9923362.html">Leading Tory backbench MP Jacob Rees-Mogg 'failed to declare interests'</a> <a href="https://web.archive.org/web/20170711031709/http://www.independent.co.uk/news/people/tory-backbench-mp-jacob-rees-mogg-failed-to-declare-interests-9923362.html">(archive)</a>
 <br>
+<a href="https://www.byline.com/column/67/article/1777">Jacob Rees-Mogg is emerging as the new face of Russian political interference in the UK</a> <a href="https://archive.is/u1kwJ">(archive)</a>
+<br>
 
 
 
