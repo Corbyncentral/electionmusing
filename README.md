@@ -489,6 +489,8 @@ ENERGY
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/uk-government-pays-6bn-a-year-in-subsidies-to-fossil-fuel-industry-a6730946.html?amp">UK Government 'pays £6bn a year in subsidies to fossil fuel industry'</a> <a href="https://web.archive.org/web/20170703231737/http://www.independent.co.uk/news/uk/politics/uk-government-pays-6bn-a-year-in-subsidies-to-fossil-fuel-industry-a6730946.html?amp">(archive)</a>
 <br>
+<a href="http://www.independent.co.uk/environment/uk-energy-intensive-pollution-companies-climate-change-fund-exemption-targets-regulation-global-a7851331.html?amp">UK’s most energy-intensive companies to get £130m exemption from climate change fund</a> <a href="https://web.archive.org/web/20170720160935/http://www.independent.co.uk/environment/uk-energy-intensive-pollution-companies-climate-change-fund-exemption-targets-regulation-global-a7851331.html?amp">(archive)</a>
+<br>
 
 <br>
 IMMIGRATION
