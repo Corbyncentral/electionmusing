@@ -515,6 +515,8 @@ IMMIGRATION
 <br>
 <a href="https://amp.theguardian.com/uk-news/2017/jul/18/home-office-has-no-data-on-eu-migrants-in-work-suggests-minister">Home Office volunteers no data on EU migrants in work</a> <a href="https://archive.is/Esl31">(archive)</a>
 <br>
+<a href="https://amp.theguardian.com/uk-news/2017/jul/19/uk-not-taken-any-child-refugees-dubs-scheme-this-year">UK has not taken in any child refugees under Dubs scheme this year</a> <a href="https://archive.is/9aWux">(archive)</a>
+<br>
 
 
 <br>
