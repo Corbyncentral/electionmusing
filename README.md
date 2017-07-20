@@ -267,6 +267,8 @@ THERESA MAY
 <br>
 <a href="https://politicalscrapbook.net/2017/07/only-one-party-leader-has-gone-back-on-their-word-to-students-and-it-isnt-jeremy-corbyn/amp/">ONLY ONE PARTY LEADER HAS GONE BACK ON THEIR WORD TO STUDENTS – AND IT ISN’T JEREMY CORBYN</a> <a href="https://archive.is/1llDg">(archive)</a>
 <br>
+<a href="http://uk.businessinsider.com/theresa-may-donors-register-of-interests-2017-7?r=US&IR=T">Here are all Theresa May's potential conflicts of interest from the political donors who funded her rise to power</a> <a href="https://archive.is/VuUbs">(archive)</a>
+<br>
 
 
 <br>
