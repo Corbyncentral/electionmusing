@@ -837,6 +837,10 @@ BREXIT
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/brexit-national-audit-office-amyas-morse-customs-check-computer-it-system-a7837811.html?amp">Brexit: Government's new customs IT system heading for £34bn 'horror show', watchdog warns</a> <a href="https://web.archive.org/web/20170713005638/http://www.independent.co.uk/news/uk/politics/brexit-national-audit-office-amyas-morse-customs-check-computer-it-system-a7837811.html?amp">(archive)</a>
 <br>
+<a href="http://www.thelondoneconomic.com/news/politics/brexit-talks-fail-just-hours-liam-fox-boasts-one-easiest-human-history/20/07/amp/">Brexit talks fail just hours after Liam Fox boasts they should be “one of the easiest in human history”</a> <a href="https://archive.is/Ksv7M">(archive)</a>
+<br>
+
+
 
 <br>
 PANAMA PAPERS AND TAXATION
