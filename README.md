@@ -586,6 +586,8 @@ RAILWAYS
 <br>
 <a href="http://www.mirror.co.uk/news/politics/tory-chaos-sneaked-out-hs2-10816160.amp">Tory farce as 'sneaked out' HS2 rail line statement runs six hours late... before it's even built</a> <a href="https://web.archive.org/web/20170717182558/http://www.mirror.co.uk/news/politics/tory-chaos-sneaked-out-hs2-10816160.amp">(archive)</a>
 <br>
+<a href="https://amp.theguardian.com/uk-news/2017/jul/20/grayling-sparks-fury-by-scrapping-rail-electrification-plans">Grayling sparks fury by scrapping rail electrification plans</a> <a href="https://archive.is/WXJqz">(archive)</a>
+<br>
 
 <br>
 AIR
