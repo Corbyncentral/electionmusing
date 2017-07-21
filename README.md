@@ -494,6 +494,9 @@ ENERGY
 <br>
 <a href="http://www.independent.co.uk/environment/uk-energy-intensive-pollution-companies-climate-change-fund-exemption-targets-regulation-global-a7851331.html?amp">UK’s most energy-intensive companies to get £130m exemption from climate change fund</a> <a href="https://web.archive.org/web/20170720160935/http://www.independent.co.uk/environment/uk-energy-intensive-pollution-companies-climate-change-fund-exemption-targets-regulation-global-a7851331.html?amp">(archive)</a>
 <br>
+<a href="http://www.independent.co.uk/news/business/news/ineos-national-trust-fracking-lawsuit-energy-firm-legal-action-clumber-park-nottinghamshire-seismic-a7851581.html?amp">Ineos threatens to sue National Trust so it can carry out fracking survey on its land</a> <a href="https://web.archive.org/web/20170721164328/http://www.independent.co.uk/news/business/news/ineos-national-trust-fracking-lawsuit-energy-firm-legal-action-clumber-park-nottinghamshire-seismic-a7851581.html?amp">(archive)</a>
+<br>
+
 
 <br>
 IMMIGRATION
