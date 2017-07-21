@@ -475,6 +475,9 @@ ENVIRONMENT
 <br>
 <a href="https://amp.theguardian.com/environment/2017/jun/22/tories-aim-block-full-eu-ban-bee-harming-pesticides">Tories aim to block full EU ban on bee-harming pesticides</a> <a href="https://archive.is/I8ZZx">(archive)</a>
 <br>
+<a href="http://www.independent.co.uk/news/business/comment/brexit-michael-gove-environment-green-subsidies-a7853266.html?amp">Green Brexit or agricultural cuts. Just what is Michael Gove up to?</a> <a href="https://web.archive.org/web/20170721163953/http://www.independent.co.uk/news/business/comment/brexit-michael-gove-environment-green-subsidies-a7853266.html?amp">(archive)</a>
+<br>
+
 
 <br>
 AGRICULTURE
