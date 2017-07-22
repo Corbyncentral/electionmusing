@@ -854,7 +854,8 @@ BREXIT
 <br>
 <a href="http://www.thelondoneconomic.com/news/politics/brexit-talks-fail-just-hours-liam-fox-boasts-one-easiest-human-history/20/07/amp/">Brexit talks fail just hours after Liam Fox boasts they should be “one of the easiest in human history”</a> <a href="https://archive.is/Ksv7M">(archive)</a>
 <br>
-
+<a href="https://amp.theguardian.com/commentisfree/2017/jul/21/brexit-banking-exodus-theresa-may-morgan-stanley">Is this the Brexit banking exodus Theresa May told us couldn’t happen?</a> <a href="https://archive.is/L27oP">(archive)</a>
+<br>
 
 
 <br>
