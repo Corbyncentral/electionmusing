@@ -461,6 +461,9 @@ HOUSING
 <br>
 <a href="http://www.independent.co.uk/news/uk/home-news/social-housing-government-funded-properties-rent-falls-97-per-cent-study-homes-communities-agency-a7799116.html">Number of government-funded social homes falls by 97% since Conservatives took office</a> <a href="https://web.archive.org/web/20170628171924/http://www.independent.co.uk/news/uk/home-news/social-housing-government-funded-properties-rent-falls-97-per-cent-study-homes-communities-agency-a7799116.html">(archive)</a>
 <br>
+<a href="https://amp.theguardian.com/society/2017/jul/22/100-tenants-a-day-lose-homes-rising-rents-benefit-freeze">100 tenants a day lose homes as rising rents and benefit freeze hit</a> <a href="https://archive.is/VoDF5">(archive)</a>
+<br>
+
 
 <br>
 ENVIRONMENT
