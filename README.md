@@ -379,6 +379,8 @@ LAW
 <br>
 <a href="http://evolvepolitics.com/the-tories-are-literally-arguing-that-12-year-old-child-rape-victims-asked-to-be-raped/">The Tories are literally arguing that 12-year-old child rape victims asked to be raped</a> <a href="https://archive.is/LVaVX">(archive)</a>
 <br>
+<a href="https://amp.theguardian.com/world/2017/jul/21/rendition-case-against-jack-straw-libya-must-held-secret-judge-rules">Rendition case against Jack Straw must be held in secret, judge rules</a> <a href="https://archive.is/6QLcR">(archive)</a>
+<br>
 
 <br>
 FIRE
