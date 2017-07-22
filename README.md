@@ -673,6 +673,8 @@ NASTY PARTY
 <br>
 <a href="https://amp.theguardian.com/politics/2017/apr/25/conservative-party-police-bullying-report-elliott-johnson">Conservative party ignored police requests to hand over internal bullying report</a> <a href="https://archive.is/G9lKQ">(archive)</a>
 <br>
+<a href="http://www.mirror.co.uk/news/politics/voice-mirror-tory-sense-entitlement-10849518.amp">Voice of the Mirror: The Tory sense of entitlement is nauseating as George Osborne receives huge payout</a> <a href="https://web.archive.org/web/20170722103946/http://www.mirror.co.uk/news/politics/voice-mirror-tory-sense-entitlement-10849518.amp">(archive)</a>
+<br>
 
 
 <br>
