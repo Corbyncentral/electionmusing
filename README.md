@@ -861,6 +861,9 @@ BREXIT
 <br>
 <a href="https://amp.theguardian.com/commentisfree/2017/jul/21/brexit-banking-exodus-theresa-may-morgan-stanley">Is this the Brexit banking exodus Theresa May told us couldn’t happen?</a> <a href="https://archive.is/L27oP">(archive)</a>
 <br>
+<a href="https://veritasetlibertasdeannolxxxix.wordpress.com/2017/05/30/5/amp/">Why tax-avoiding billionaires want Britain outside the EU?</a> <a href="https://archive.is/U0Ccr">(archive)</a>
+<br>
+
 
 
 <br>
