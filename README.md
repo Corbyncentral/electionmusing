@@ -269,6 +269,8 @@ THERESA MAY
 <br>
 <a href="http://uk.businessinsider.com/theresa-may-donors-register-of-interests-2017-7?r=US&IR=T">Here are all Theresa May's potential conflicts of interest from the political donors who funded her rise to power</a> <a href="https://archive.is/VuUbs">(archive)</a>
 <br>
+<a href="http://uk.businessinsider.com/theresa-may-shielded-from-business-leaders-2017-7?r=US&IR=T">Theresa May's handlers blocked her from meeting CEOs for a year, which explains why she was so tone deaf when it came to business</a> <a href="https://archive.is/KPPPJ">(archive)</a>
+<br>
 
 
 <br>
