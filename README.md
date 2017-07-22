@@ -137,6 +137,8 @@ TERROR
 <br>
 <a href="https://amp.theguardian.com/uk-news/2017/jul/18/police-missing-terrorist-tip-offs-lord-condon-because-of-cuts-says-former-met-chief">Police missing terrorist tip-offs because of cuts, says former Met chief</a> <a href="https://archive.is/KEZ2J">(archive)</a>
 <br>
+<a href="http://www.independent.co.uk/news/uk/home-news/isis-terror-attacks-uk-threat-level-not-reducing-losses-syria-iraq-metropolitan-police-mosul-raqqa-a7854106.html?amp">Isis losses in Syria and Iraq not reducing terror threat in UK, police chief warns</a> <a href="https://web.archive.org/web/20170722202836/http://www.independent.co.uk/news/uk/home-news/isis-terror-attacks-uk-threat-level-not-reducing-losses-syria-iraq-metropolitan-police-mosul-raqqa-a7854106.html?amp">(archive)</a>
+<br>
 
 
 <br>
