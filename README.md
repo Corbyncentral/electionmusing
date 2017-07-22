@@ -1097,6 +1097,9 @@ SAJID JAVID
 <br>
 <a href="http://www.newstatesman.com/politics/2014/04/sajid-javids-father-would-never-have-made-it-camerons-britain">Sajid Javid's father would never have made it into Cameron's Britain</a> <a href="https://archive.is/mBYmD">(archive)</a>
 <br>
+<a href="https://www.thecanary.co/2017/07/22/120000-children-failed-sajid-javid-hang-head-shame/">Over 120,000 children have been failed by Sajid Javid. He should hang his head in shame</a> <a href="https://web.archive.org/web/20170722204142/https://www.thecanary.co/2017/07/22/120000-children-failed-sajid-javid-hang-head-shame/">(archive)</a>
+<br>
+
 
 <br>
 JUSTINE GREENING
