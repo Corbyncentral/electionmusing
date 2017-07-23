@@ -178,6 +178,8 @@ WAR
 <br>
 <a href="https://britishempireexposed.wordpress.com/2016/09/24/britains-role-in-yemen/amp/">Britain’s role in Yemen</a> <a href="https://archive.is/2v6L3">(archive)</a>
 <br>
+<a href="https://amp.theguardian.com/world/2017/jul/23/uk-arms-sales-to-saudis-continued-after-airstrike-on-yemen-funeral">UK approved £283m of arms sales to Saudis after airstrike on Yemen funeral</a> <a href="https://archive.is/zdBJl">(archive)</a>
+<br>
 <a href="https://www.theguardian.com/uk-news/2016/sep/08/britains-secret-wars-oman">Britain's secret wars</a> <a href="https://archive.is/bVlZK">(archive)</a>
 <br>
 <a href="https://www.caat.org.uk">Campaign Against Arms Trade</a>
