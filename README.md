@@ -3,9 +3,11 @@
 
 
 <br>
-AUSTERITY LIE
-<br>
+AUSTERITY RUSE
+<br>W
 <a href="http://www.mirror.co.uk/news/politics/stubborn-tory-mps-increase-westminster-10853734.amp">Stubborn Tory MPs increase Westminster refurbishment bill by £2BILLION as they refuse to leave building</a> <a href="https://web.archive.org/web/20170723151221/http://www.mirror.co.uk/news/politics/stubborn-tory-mps-increase-westminster-10853734.amp">(archive)</a>
+<br>
+<a href="https://www.thecanary.co/2017/07/23/media-kept-quiet-mays-grubby-golden-handshakes-20-tory-ministers-naming/">The media has kept quiet about May’s grubby ‘golden handshakes’ to 20 Tory ministers. So we’re naming them</a> <a href="https://web.archive.org/web/20170723203359/https://www.thecanary.co/2017/07/23/media-kept-quiet-mays-grubby-golden-handshakes-20-tory-ministers-naming/">(archive)</a>
 <br>
 
 
