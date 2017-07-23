@@ -585,6 +585,9 @@ EMPLOYMENT AND WORKERS' RIGHTS
 <br>
 <a href="http://www.mirror.co.uk/news/politics/theresa-mays-workers-rights-pledge-10778348.amp">Theresa May's workers rights pledge a sham as she refuses to ban zero-hours contracts and big tribunal fees</a> <a href="https://archive.is/Taw09">(archive)</a>
 <br>
+<a href="http://uk.businessinsider.com/unemployment-in-the-uk-is-now-so-low-its-in-danger-of-exposing-the-lie-used-to-create-the-numbers-2017-7">Unemployment in the UK is now so low it's in danger of exposing the lie used to create the numbers</a> <a href="https://archive.is/tkfdA">(archive)</a>
+<br>
+
 
 <br>
 EDUCATION
