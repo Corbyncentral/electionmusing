@@ -1,6 +1,14 @@
 # Political Links
 
 
+
+<br>
+AUSTERITY LIE
+<br>
+<a href="http://www.mirror.co.uk/news/politics/stubborn-tory-mps-increase-westminster-10853734.amp">Stubborn Tory MPs increase Westminster refurbishment bill by £2BILLION as they refuse to leave building</a> <a href="https://web.archive.org/web/20170723151221/http://www.mirror.co.uk/news/politics/stubborn-tory-mps-increase-westminster-10853734.amp">(archive)</a>
+<br>
+
+
 <br>
 NEGATIVE TACTICS
 <br>
