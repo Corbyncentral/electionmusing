@@ -170,6 +170,8 @@ ARMED FORCES
 <br>
 <a href="https://www.thecanary.co/2016/07/18/truth-trident-shocking-fact-turn-us-paying-nukes/">The truth about Trident: the shocking fact that would turn us all against paying for nukes</a> <a href="https://web.archive.org/web/20170719112104/https://www.thecanary.co/2016/07/18/truth-trident-shocking-fact-turn-us-paying-nukes/">(archive)</a>
 <br>
+<a href="http://www.heraldscotland.com/news/15427620.Plans_to_replace_Trident_slammed_as____unachievable____by_Westminster_watchdog/?ref=twtrec">Plans to replace Trident slammed as “unachievable” by Westminster watchdog</a> <a href="https://archive.is/xK9LU">(archive)</a>
+<br>
 
 <br>
 WAR
