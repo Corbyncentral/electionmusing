@@ -911,6 +911,9 @@ ECONOMY
 <br>
 <a href="http://www.independent.co.uk/news/business/news/uk-economy-world-worst-performing-advanced-countries-state-g7-european-union-a7817046.html">UK is the worst-performing advanced economy in the world, official figures confirm</a> <a href="https://web.archive.org/web/20170630191713/http://www.independent.co.uk/news/business/news/uk-economy-world-worst-performing-advanced-countries-state-g7-european-union-a7817046.html">(archive)</a>
 <br>
+<a href="https://amp.theguardian.com/business/2014/dec/29/labour-government-not-responsible-crash-bank-england-governor-mervyn-king">Labour not responsible for crash, says former Bank of England governor</a> <a href="https://archive.is/Ib3W3">(archive)</a>
+<br>
+
 
 <br>
 ISRAEL
