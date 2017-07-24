@@ -172,6 +172,9 @@ ARMED FORCES
 <br>
 <a href="http://www.heraldscotland.com/news/15427620.Plans_to_replace_Trident_slammed_as____unachievable____by_Westminster_watchdog/?ref=twtrec">Plans to replace Trident slammed as “unachievable” by Westminster watchdog</a> <a href="https://archive.is/xK9LU">(archive)</a>
 <br>
+<a href="http://www.independent.co.uk/news/uk/home-news/austerity-british-army-recruitment-crisis-philip-hammond-cuts-capita-outsourcing-not-enough-trained-a7825626.html?amp">Revealed: How the Government’s big austerity plan to replace regular soldiers with reservists has 'led to crisis'</a> <a href="https://web.archive.org/web/20170724130236/http://www.independent.co.uk/news/uk/home-news/austerity-british-army-recruitment-crisis-philip-hammond-cuts-capita-outsourcing-not-enough-trained-a7825626.html?amp">(archive)</a>
+<br>
+
 
 <br>
 WAR
