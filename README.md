@@ -891,7 +891,8 @@ BREXIT
 <br>
 <a href="http://uk.businessinsider.com/liam-fox-wants-uk-to-import-chlorinated-chickens-in-brexit-deal-with-us-2017-7">Liam Fox wants UK to import chlorinated chickens as part of Brexit free trade deal with US</a> <a href="https://archive.is/pkCKI">(archive)</a>
 <br>
-
+<a href="https://amp.theguardian.com/business/2017/jul/24/brexit-bangers-uk-meat-prices-pork-beef">Brexit to push up cost of bangers as UK wholesale meat prices soar</a> <a href="https://archive.is/NLrT9">(archive)</a>
+<br>
 
 
 <br>
