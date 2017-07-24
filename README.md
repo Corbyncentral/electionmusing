@@ -939,6 +939,8 @@ ECONOMY
 <br>
 <a href="https://amp.theguardian.com/business/2014/dec/29/labour-government-not-responsible-crash-bank-england-governor-mervyn-king">Labour not responsible for crash, says former Bank of England governor</a> <a href="https://archive.is/Ib3W3">(archive)</a>
 <br>
+<a href="https://www.businessleader.co.uk/14000-entrepreneurs-debt-start-loans/33780/">14,000 ENTREPRENEURS ARE IN DEBT BECAUSE OF START-UP LOANS</a> <a href="https://archive.is/VYgb4">(archive)</a>
+<br>
 
 
 <br>
