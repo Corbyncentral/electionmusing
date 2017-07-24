@@ -822,6 +822,8 @@ NHS
 <br>
 <a href="https://amp.theguardian.com/society/2016/feb/08/us-firms-look-to-capitalise-as-nhs-becomes-increasingly-privatised">US firms look to capitalise as NHS becomes increasingly privatised</a> <a href="https://archive.is/ZJexw">(archive)</a>
 <br>
+<a href="https://amp.theguardian.com/society/2017/jul/19/nhs-england-urgently-needs-2200-more-ae-consultants">NHS England 'urgently needs 2,200 more A&E consultants'</a> <a href="https://archive.is/0adcN">(archive)</a>
+<br>
 
 <br>
 UN
