@@ -77,6 +77,8 @@ BBC
 <br>
 <a href="http://m.huffpost.com/uk/entry/uk_595e4588e4b02e9bdb0abd73">Robbie Gibb, Senior BBC Editor, Named Theresa May’s New Communications Director</a> <a href="https://archive.is/Nz1S0">(archive)</a>
 <br>
+<a href="http://www.independent.co.uk/news/uk/politics/liam-fox-bbc-wilfully-ignored-positive-brexit-news-liberal-democrats-alistair-carmichael-eu-andrea-a7856226.html">Tory minister Liam Fox accused of behaving like 'tinpot dictator' over BBC Brexit bias claims</a> <a href="https://web.archive.org/web/20170724142255/http://www.independent.co.uk/news/uk/politics/liam-fox-bbc-wilfully-ignored-positive-brexit-news-liberal-democrats-alistair-carmichael-eu-andrea-a7856226.html">(archive)</a>
+<br>
 
 <br>
 JEREMY CORBYN
