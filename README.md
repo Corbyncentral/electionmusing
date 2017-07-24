@@ -176,6 +176,8 @@ ARMED FORCES
 <br>
 <a href="http://www.independent.co.uk/news/uk/home-news/austerity-british-army-recruitment-crisis-philip-hammond-cuts-capita-outsourcing-not-enough-trained-a7825626.html?amp">Revealed: How the Government’s big austerity plan to replace regular soldiers with reservists has 'led to crisis'</a> <a href="https://web.archive.org/web/20170724130236/http://www.independent.co.uk/news/uk/home-news/austerity-british-army-recruitment-crisis-philip-hammond-cuts-capita-outsourcing-not-enough-trained-a7825626.html?amp">(archive)</a>
 <br>
+<a href="https://www.thecanary.co/2017/07/24/the-uks-nuclear-deterrent-has-been-placed-on-red-alert-and-theresa-may-will-be-furious/">The UK’s nuclear deterrent has been placed on ‘red alert’. And Theresa May will be furious</a> <a href="https://web.archive.org/web/20170724231558/https://www.thecanary.co/2017/07/24/the-uks-nuclear-deterrent-has-been-placed-on-red-alert-and-theresa-may-will-be-furious/">(archive)</a>
+<br>
 
 
 <br>
