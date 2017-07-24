@@ -884,6 +884,8 @@ BREXIT
 <br>
 <a href="https://veritasetlibertasdeannolxxxix.wordpress.com/2017/05/30/5/amp/">Why tax-avoiding billionaires want Britain outside the EU?</a> <a href="https://archive.is/U0Ccr">(archive)</a>
 <br>
+<a href="http://uk.businessinsider.com/liam-fox-wants-uk-to-import-chlorinated-chickens-in-brexit-deal-with-us-2017-7">Liam Fox wants UK to import chlorinated chickens as part of Brexit free trade deal with US</a> <a href="https://archive.is/pkCKI">(archive)</a>
+<br>
 
 
 
