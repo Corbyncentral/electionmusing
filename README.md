@@ -835,6 +835,8 @@ NHS
 <br>
 <a href="https://amp.theguardian.com/society/2017/jul/19/nhs-england-urgently-needs-2200-more-ae-consultants">NHS England 'urgently needs 2,200 more A&E consultants'</a> <a href="https://archive.is/0adcN">(archive)</a>
 <br>
+<a href="https://amp.theguardian.com/society/2017/jul/25/soaring-nhs-vacancies-prompt-warnings-of-understaffing-nursing">Soaring NHS vacancies prompt warnings of 'desperate' understaffing</a> <a href="https://archive.is/NVEK4">(archive)</a>
+<br>
 
 <br>
 UN
