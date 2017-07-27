@@ -602,7 +602,8 @@ EMPLOYMENT AND WORKERS' RIGHTS
 <br>
 <a href="http://uk.businessinsider.com/unemployment-in-the-uk-is-now-so-low-its-in-danger-of-exposing-the-lie-used-to-create-the-numbers-2017-7">Unemployment in the UK is now so low it's in danger of exposing the lie used to create the numbers</a> <a href="https://archive.is/tkfdA">(archive)</a>
 <br>
-
+<a href="http://uk.businessinsider.com/the-lie-behind-the-unemployment-numbers-2017-7">More on the 'lie' behind the unemployment numbers</a> <a href="https://archive.is/LtMEV">(archive)</a>
+<br>
 
 <br>
 EDUCATION
