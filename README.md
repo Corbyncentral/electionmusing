@@ -905,7 +905,8 @@ BREXIT
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/uk-eu-citizens-rights-brexit-guy-verhofstadt-negotiations-talks-silent-a7860566.html">UK is 'jeopardising' EU citizens' rights by 'remaining silent' on key Brexit issues, says Guy Verhofstadt</a> <a href="https://web.archive.org/web/20170726103649/http://www.independent.co.uk/news/uk/politics/uk-eu-citizens-rights-brexit-guy-verhofstadt-negotiations-talks-silent-a7860566.html">(archive)</a>
 <br>
-
+<a href="https://www.buzzfeed.com/amphtml/jimwaterson/grassroots-out">Eurosceptic Tory MPs Paid £40,000 By Their Own Anti-EU Campaign</a> <a href="https://archive.is/bIzcZ">(archive)</a>
+<br>
 
 <br>
 PANAMA PAPERS AND TAXATION
