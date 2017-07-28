@@ -49,6 +49,8 @@ NEGATIVE TACTICS
 <br>
 <a href="http://www.mirror.co.uk/news/politics/two-tory-mps-accused-abusing-10873972.amp?service=responsive">Two Tory MPs accused of 'abusing the rules' after camping out and flooding Parliament with 70 plan</a>  <a href="https://web.archive.org/web/20170726160746/http://www.mirror.co.uk/news/politics/two-tory-mps-accused-abusing-10873972.amp?service=responsive">(archive)</a>
 <br>
+<a href="http://evolvepolitics.com/tory-donor-corbyn-spike-pimlico-plumbers/">Unhinged Tory Donor advocates having Jeremy Corbyn killed on his official company website</a> <a href="https://archive.is/xky91">(archive)</a>
+<br>
 
 <br>
 SCOTLAND
