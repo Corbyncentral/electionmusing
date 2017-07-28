@@ -121,6 +121,8 @@ JEREMY CORBYN
 <br>
 <a href="http://evolvepolitics.com/right-wing-media-link-corbyn-genocide-denier-somehow-forget-firm-tory-mp-board/">Right-wing media link Corbyn to ‘genocide denier’, but somehow forget his firm had Tory MP on the board</a> <a href="https://archive.is/HxnUt">(archive)</a>
 <br>
+<a href="https://amp.theguardian.com/commentisfree/2017/jul/28/they-just-dont-get-it-video-upset-corbyn-deniers-labour-momentum">The dinner party video has wound up Momentum’s critics. They just don’t get it</a> <a href="https://archive.is/VsgdB">(archive)</a>
+<br>
 
 <br>
 TERROR
