@@ -2,6 +2,15 @@
 
 
 
+
+<br>
+GOOGLE
+<br>
+<a href="http://evolvepolitics.com/google-left-wing-censorship/">REVEALED: Google are ‘politically censoring’ left-wing websites in the United States. Will the U.K be next?</a> <a href="https://archive.is/1bnsD">(archive)</a>
+<br>
+<a href="http://www.independent.co.uk/news/business/news/google-tax-36-million-annual-report-corporation-tax-george-osborne-johnmcdonnell-susan-kramer-a7661221.html">Google paid £36 million in tax on UK revenues of £1 billion, reports show</a> <a href="https://web.archive.org/web/20170728191540/http://www.independent.co.uk/news/business/news/google-tax-36-million-annual-report-corporation-tax-george-osborne-johnmcdonnell-susan-kramer-a7661221.html">(archive)</a>
+<br>
+
 <br>
 AUSTERITY RUSE
 <br>
