@@ -300,7 +300,8 @@ THERESA MAY
 <br>
 <a href="http://uk.businessinsider.com/theresa-may-shielded-from-business-leaders-2017-7?r=US&IR=T">Theresa May's handlers blocked her from meeting CEOs for a year, which explains why she was so tone deaf when it came to business</a> <a href="https://archive.is/KPPPJ">(archive)</a>
 <br>
-
+<a href="http://www.independent.co.uk/news/brexit-immigration-theresa-may-report-liberal-democrats-accuse-pm-manipulation-a7334466.html?amp">Theresa May accused of manipulating crucial immigration report before Brexit vote</a> <a href="https://web.archive.org/web/20170728163917/http://www.independent.co.uk/news/brexit-immigration-theresa-may-report-liberal-democrats-accuse-pm-manipulation-a7334466.html?amp">(archive)</a>
+<br>
 
 <br>
 AUSTERITY/WELFARE
