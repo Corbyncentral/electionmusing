@@ -417,6 +417,8 @@ LAW
 <br>
 <a href="http://www.mirror.co.uk/news/politics/supreme-court-rules-tory-tribunal-10872958.amp">Supreme Court rules Tory tribunal fees are unlawful - and everyone has to be refunded</a> <a href="https://web.archive.org/web/20170726110434/http://www.mirror.co.uk/news/politics/supreme-court-rules-tory-tribunal-10872958.amp">(archive)</a>
 <br>
+<a href="https://www.thecanary.co/2017/07/27/lose-loved-one-murder-theresa-mays-britain-cost-37000/">If you lose a loved one to murder in Theresa May’s Britain, it could cost you £37,000</a> <a href="https://archive.is/u1sVI">(archive)</a>
+<br>
 
 <br>
 FIRE
