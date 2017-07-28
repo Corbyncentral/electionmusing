@@ -341,6 +341,8 @@ AUSTERITY/WELFARE
 <br>
 <a href="http://www.independent.co.uk/news/uk/home-news/life-expectancy-uk-professor-sir-michael-marmot-leveled-off-deeply-concerned-a7846221.html?amp">Rise in life expectancy has stalled since Tories introduced austerity in 2010, study finds</a> <a href="https://web.archive.org/web/20170719130124/http://www.independent.co.uk/news/uk/home-news/life-expectancy-uk-professor-sir-michael-marmot-leveled-off-deeply-concerned-a7846221.html?amp">(archive)</a>
 <br>
+<a href="https://skwawkbox.org/2017/07/25/govt-replaces-unemployment-mortgage-interest-benefit-with-loans/amp/">Govt replaces unemployment mortgage-interest benefit with loans</a> <a href="https://archive.is/trf0b">(archive)</a>
+<br>
 
 <br>
 DISABILITY
