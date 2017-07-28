@@ -845,6 +845,8 @@ NHS
 <br>
 <a href="https://amp.theguardian.com/society/2017/jul/25/soaring-nhs-vacancies-prompt-warnings-of-understaffing-nursing">Soaring NHS vacancies prompt warnings of 'desperate' understaffing</a> <a href="https://archive.is/NVEK4">(archive)</a>
 <br>
+<a href="https://amp.theguardian.com/society/2017/jul/28/nhs-accused-of-shrouding-500m-of-planned-cuts-in-secrecy">NHS accused of shrouding £500m of planned cuts in secrecy</a> <a href="https://archive.is/u1sVI">(archive)</a>
+<br>
 
 <br>
 UN
