@@ -432,6 +432,8 @@ LAW
 <br>
 <a href="https://www.thecanary.co/2017/07/27/lose-loved-one-murder-theresa-mays-britain-cost-37000/">If you lose a loved one to murder in Theresa May’s Britain, it could cost you £37,000</a> <a href="https://archive.is/u1sVI">(archive)</a>
 <br>
+<a href="http://www.independent.co.uk/news/uk/politics/government-acids-acid-attacks-deregulation-act-conservatives-poisons-board-a7856041.html?amp">Government ignored expert advice and relaxed laws on sale of acids used in recent attacks</a> <a href="https://web.archive.org/web/20170729213600/http://www.independent.co.uk/news/uk/politics/government-acids-acid-attacks-deregulation-act-conservatives-poisons-board-a7856041.html?amp">(archive)</a>
+<br>
 
 <br>
 FIRE
