@@ -936,6 +936,8 @@ BREXIT
 <br>
 <a href="https://www.buzzfeed.com/amphtml/jimwaterson/grassroots-out">Eurosceptic Tory MPs Paid £40,000 By Their Own Anti-EU Campaign</a> <a href="https://archive.is/bIzcZ">(archive)</a>
 <br>
+<a href="https://amp.theguardian.com/politics/2017/jul/29/uk-border-customs-chaos-hit-hard-brexit">Border chaos will hit hard after Brexit, says report</a> <a href="https://archive.is/7tU2T">(archive)</a>
+<br>
 
 <br>
 PANAMA PAPERS AND TAXATION
