@@ -1162,6 +1162,8 @@ CHRIS GRAYLING
 <br>
 <a href="https://politicalscrapbook.net/2017/06/watch-minister-claims-tories-have-increased-tax-on-the-rich-but-cant-name-a-single-one/amp/">WATCH: MINISTER CLAIMS TORIES HAVE INCREASED TAX ON THE RICH – BUT CAN’T NAME A SINGLE ONE</a> <a href="https://archive.is/b9Ldx">(archive)</a>
 <br>
+<a href="https://www.politicshome.com/news/uk/transport/rail-transport/news/87922/chris-grayling-accused-hs2-budget-cover">Chris Grayling accused of HS2 budget cover-up</a> <a href="https://archive.is/Rc7Ox">(archive)</a>
+<br>
 
 <br>
 LIZ TRUSS
