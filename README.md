@@ -1110,7 +1110,8 @@ AMBER RUDD
 <br>
 <a href="http://www.mirror.co.uk/news/uk-news/tory-home-secretary-amber-rudds-8972936.amp">Tory Home Secretary Amber Rudd involved in string of firms that went bust and owed millions</a> <a href="https://archive.is/Q7m6v">(archive)</a>
 <br>
-
+<a href="http://www.chroniclelive.co.uk/news/north-east-news/home-secretary-amber-rudd-criticised-13395379">Home Secretary Amber Rudd criticised for 'cowardly' private visit to North East police force</a> <a href="http://archive.is/h3H3a">(archive)</a>
+<br>
 
 <br>
 DAMIEN GREEN
