@@ -1178,6 +1178,8 @@ SAJID JAVID
 <br>
 <a href="https://www.thecanary.co/2017/07/22/120000-children-failed-sajid-javid-hang-head-shame/">Over 120,000 children have been failed by Sajid Javid. He should hang his head in shame</a> <a href="https://web.archive.org/web/20170722204142/https://www.thecanary.co/2017/07/22/120000-children-failed-sajid-javid-hang-head-shame/">(archive)</a>
 <br>
+<a href="http://m.huffpost.com/uk/entry/uk_5978e79be4b02a8434b3439d/amp">'Clueless' Sajid Javid Did Not Know His Minister Had Replied To Councils Asking For Fire Safety Cash</a> <a href="https://web.archive.org/web/20170729000458/http://m.huffpost.com/uk/entry/uk_5978e79be4b02a8434b3439d/amp">(archive)</a>
+<br>
 
 
 <br>
