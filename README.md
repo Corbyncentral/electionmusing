@@ -23,6 +23,8 @@ AUSTERITY RUSE
 <br>
 NEGATIVE TACTICS
 <br>
+<a href="https://www.thepileus.com/latest/tories-never-talk-policies/">Why do the Tories never talk about their own policies?</a> <a href="https://archive.is/TKlNC">(archive)</a>
+<br>
 <a href="https://skwawkbox.org/2017/06/24/exclusive-bluetelecoms-texts-map-increasing-tory-ge17-desperation/amp/">Exclusive: #BlueTelecoms texts map increasing Tory #GE17 desperation</a>
 <a href="https://archive.is/Y6YV4">(archive)</a>
 <br>
