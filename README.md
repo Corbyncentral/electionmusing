@@ -1238,6 +1238,9 @@ Journalist's Guide To Opinion Polls</a>
 <br>
 <a href="http://www.globaljustice.org.uk/who-we-are">Global Justice Now</a>
 <br>
+<a href="http://www.mirror.co.uk/news/ampp3d/buying-12-things-means-youre-5391826.amp">Buying these 11 things means you're unwittingly funding the Tories</a> <a href="https://web.archive.org/web/20170730205702/http://www.mirror.co.uk/news/ampp3d/buying-12-things-means-youre-5391826.amp">(archive)</a>
+<br>
+
 
 <br>
 SUPPORTING LABOUR
