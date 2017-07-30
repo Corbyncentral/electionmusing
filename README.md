@@ -869,6 +869,8 @@ NHS
 <br>
 <a href="https://amp.theguardian.com/society/2017/jul/28/nhs-accused-of-shrouding-500m-of-planned-cuts-in-secrecy">NHS accused of shrouding £500m of planned cuts in secrecy</a> <a href="https://archive.is/u1sVI">(archive)</a>
 <br>
+<a href="https://amp.theguardian.com/healthcare-network/views-from-the-nhs-frontline/2017/jul/24/general-practice-nhs-recruitment-crisis">General practice is being ground down so that private providers can take over</a> <a href="https://archive.is/iX1Xl">(archive)</a>
+<br>
 
 <br>
 UN
