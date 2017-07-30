@@ -406,6 +406,9 @@ PRISONS
 <br>
 <a href="http://www.independent.co.uk/news/uk/home-news/prison-officers-strike-ban-permanent-industrial-action-home-office-high-court-win-prison-officers-a7848346.html?amp">Prison officers permanently banned from striking after Government wins High Court bid</a> <a href="https://web.archive.org/web/20170719170313/http://www.independent.co.uk/news/uk/home-news/prison-officers-strike-ban-permanent-industrial-action-home-office-high-court-win-prison-officers-a7848346.html?amp">(archive)</a>
 <br>
+<a href="http://www.independent.co.uk/news/uk/home-news/grenfell-tower-fire-safety-prisons-failings-warnings-freedom-of-information-mark-leech-a7866076.html?amp">Fire safety in prisons 'a catastrophe waiting to happen', as failings uncovered in every inspection in past year</a> <a href="https://web.archive.org/web/20170730144854/http://www.independent.co.uk/news/uk/home-news/grenfell-tower-fire-safety-prisons-failings-warnings-freedom-of-information-mark-leech-a7866076.html?amp">(archive)</a>
+<br>
+
 
 <br>
 LAW
