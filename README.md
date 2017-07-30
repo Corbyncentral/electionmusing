@@ -1116,6 +1116,8 @@ AMBER RUDD
 <br>
 <a href="http://www.chroniclelive.co.uk/news/north-east-news/home-secretary-amber-rudd-criticised-13395379">Home Secretary Amber Rudd criticised for 'cowardly' private visit to North East police force</a> <a href="http://archive.is/h3H3a">(archive)</a>
 <br>
+<a href="https://amp.theguardian.com/politics/2017/mar/06/amber-rudd-secret-billion-pound-conflict-stability-security-fund">Amber Rudd asked to reveal where secret £1bn conflict fund is spent</a> <a href="https://archive.is/8f3dE">(archive)</a>
+<br>
 
 <br>
 DAMIEN GREEN
