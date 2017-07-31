@@ -1005,7 +1005,8 @@ ECONOMY
 <br>
 <a href="https://www.thecanary.co/2017/07/25/dire-warning-bank-england-makes-toppling-tories-britains-number-one-priority/">A dire warning from the Bank of England makes toppling the Tories Britain’s number one priority</a> <a href="https://web.archive.org/web/20170726095704/https://www.thecanary.co/2017/07/25/dire-warning-bank-england-makes-toppling-tories-britains-number-one-priority/">(archive)</a>
 <br>
-
+<a href="http://uk.businessinsider.com/begbies-traynor-red-flag-report-spike-in-financial-distress-for-smes-2017-7?r=US&IR=T">330,000 British businesses are in 'significant' financial distress and at risk of going bust</a> <a href="https://archive.is/s7tCh">(archive)</a>
+<br>
 
 <br>
 ISRAEL
