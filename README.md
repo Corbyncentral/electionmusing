@@ -345,6 +345,9 @@ AUSTERITY/WELFARE
 <br>
 <a href="https://skwawkbox.org/2017/07/25/govt-replaces-unemployment-mortgage-interest-benefit-with-loans/amp/">Govt replaces unemployment mortgage-interest benefit with loans</a> <a href="https://archive.is/trf0b">(archive)</a>
 <br>
+<a href="http://m.huffpost.com/uk/entry/12599912">Austerity Has Created A Mental Health Crisis</a> <a href="https://archive.is/VDdDS">(archive)</a>
+<br>
+
 
 <br>
 DISABILITY
