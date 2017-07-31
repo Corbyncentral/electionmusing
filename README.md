@@ -517,6 +517,9 @@ HOUSING
 <br>
 <a href="https://amp.theguardian.com/society/2017/jul/22/100-tenants-a-day-lose-homes-rising-rents-benefit-freeze">100 tenants a day lose homes as rising rents and benefit freeze hit</a> <a href="https://archive.is/VoDF5">(archive)</a>
 <br>
+<a href="https://amp.theguardian.com/money/2017/jul/31/owners-ex-local-authority-homes-bills-thousands">Owners of ex-local authority homes face horror of bills running into thousands</a> <a href="https://archive.is/khLwA">(archive)</a>
+<br>
+
 
 
 <br>
