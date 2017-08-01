@@ -686,6 +686,8 @@ AIR
 <br>
 <a href="https://www.aol.co.uk/news/2017/07/30/government-bill-close-to-a-400-000-in-air-pollution-fight-agains/">Government bill close to £400,000 in air pollution fight against ClientEarth</a> <a href="https://archive.is/bszpG">(archive)</a>
 <br>
+<a href="https://www.theguardian.com/environment/2017/jul/26/governments-air-quality-plan-is-cynical-headline-grabbing-say-critics">Government's air quality plan branded inadequate by city leaders</a> <a href="https://archive.is/1BDYm">(archive)</a>
+<br>
 <a href="https://cleanair.london">Clean air London blog</a>
 <br>
 
