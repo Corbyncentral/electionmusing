@@ -523,6 +523,12 @@ HOUSING
 <a href="https://amp.theguardian.com/money/2017/jul/31/owners-ex-local-authority-homes-bills-thousands">Owners of ex-local authority homes face horror of bills running into thousands</a> <a href="https://archive.is/khLwA">(archive)</a>
 <br>
 
+<br>
+HOMELESSNESS
+<br>
+<a href="https://www.thecanary.co/2017/08/01/posters-cropping-around-capital-will-home-office-hopping-mad-tweets/">These posters cropping up around the capital will have the Home Office hopping mad</a> <a href="https://web.archive.org/web/20170801165811/https://www.thecanary.co/2017/08/01/posters-cropping-around-capital-will-home-office-hopping-mad-tweets/">(archive)</a>
+<br>
+
 
 
 <br>
