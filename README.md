@@ -349,7 +349,8 @@ AUSTERITY/WELFARE
 <br>
 <a href="http://m.huffpost.com/uk/entry/12599912">Austerity Has Created A Mental Health Crisis</a> <a href="https://archive.is/VDdDS">(archive)</a>
 <br>
-
+<a href="https://amp.theguardian.com/society/2017/aug/01/benefit-sanctions-thing-of-past-david-webster">David Webster: ‘Benefit sanctions should be a thing of the past’</a> <a href="https://archive.is/QAkh4">(archive)</a>
+<br>
 
 <br>
 DISABILITY
