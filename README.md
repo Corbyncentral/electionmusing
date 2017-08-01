@@ -391,6 +391,8 @@ POLICE
 <br>
 <a href="https://amp.theguardian.com/uk-news/2017/jul/02/amber-rudd-urged-to-publish-report-on-deaths-in-police-custody">Amber Rudd urged to publish report on deaths in police custody</a> <a href="https://archive.is/grFjs">(archive)</a>
 <br>
+<a href="https://amp.theguardian.com/uk-news/2017/aug/01/call-for-action-to-tackle-birminghams-knife-epidemic">Call for action to tackle Birmingham knife crime 'epidemic'</a> <a href="https://archive.is/Ks9Pz">(archive)</a>
+<br>
 
 <br>
 PRISONS
