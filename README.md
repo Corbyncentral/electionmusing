@@ -442,6 +442,9 @@ LAW
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/government-acids-acid-attacks-deregulation-act-conservatives-poisons-board-a7856041.html?amp">Government ignored expert advice and relaxed laws on sale of acids used in recent attacks</a> <a href="https://web.archive.org/web/20170729213600/http://www.independent.co.uk/news/uk/politics/government-acids-acid-attacks-deregulation-act-conservatives-poisons-board-a7856041.html?amp">(archive)</a>
 <br>
+<a href="http://www.independent.co.uk/news/uk/politics/ministers-sneak-out-plans-privatisation-court-fines-liz-truss-richard-burgon-a7871636.html?amp">Ministers 'sneak out' plans to privatise collection of court fines</a> <a href="https://web.archive.org/web/20170801190553/http://www.independent.co.uk/news/uk/politics/ministers-sneak-out-plans-privatisation-court-fines-liz-truss-richard-burgon-a7871636.html?amp">(archive)</a>
+<br>
+
 
 <br>
 FIRE
