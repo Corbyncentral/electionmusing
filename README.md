@@ -573,6 +573,8 @@ ENERGY
 <br>
 <a href="http://www.independent.co.uk/news/business/news/ineos-national-trust-fracking-lawsuit-energy-firm-legal-action-clumber-park-nottinghamshire-seismic-a7851581.html?amp">Ineos threatens to sue National Trust so it can carry out fracking survey on its land</a> <a href="https://web.archive.org/web/20170721164328/http://www.independent.co.uk/news/business/news/ineos-national-trust-fracking-lawsuit-energy-firm-legal-action-clumber-park-nottinghamshire-seismic-a7851581.html?amp">(archive)</a>
 <br>
+<a href="https://skwawkbox.org/2017/08/01/video-britishgas-price-rockets-but-wheres-the-msm-u-turn-outrage/amp/">Video: #BritishGas price rockets – but where’s the #MSM u-turn outrage?</a> <a href="https://archive.is/YH9YJ">(archive)</a>
+<br>
 
 
 <br>
