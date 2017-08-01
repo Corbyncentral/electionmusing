@@ -213,6 +213,8 @@ WAR
 <a href="https://consortiumnews.com/2017/07/07/hiding-us-lies-about-libyan-invasion/">Hiding US Lies About Libyan Invasion
 </a> <a href="https://archive.is/zXqkx">(archive)</a>
 <br>
+<a href="https://amp.theguardian.com/commentisfree/2017/feb/12/observer-view-britain-shameful-role-in-arms-trade-arab-spring-yemen">The Observer view on Britain’s shameful role in the arms trade</a> <a href="https://archive.is/dqRiv">(archive)</a>
+<br>
 
 <br>
 IRA
