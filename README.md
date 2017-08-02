@@ -1056,7 +1056,8 @@ VENEZUELA
 <br>
 <a href="http://www.independent.co.uk/news/world/americas/cia-venezuela-crisis-government-mike-pompeo-helping-install-new-remarks-a7859771.html">CIA chief hints agency is working to change Venezuelan government</a> <a href="https://web.archive.org/web/20170802201632/http://www.independent.co.uk/news/world/americas/cia-venezuela-crisis-government-mike-pompeo-helping-install-new-remarks-a7859771.html">(archive)</a>
 <br>
-
+<a href="http://morningstaronline.co.uk/a-9b2f-CIA-confirms-the-US-has-its-eyes-on-Venezuelas-oil#.WYI6a0HTWEd">Trump’s intervention in Venezuela represents another chapter in the long history of US interference in Latin America</a> <a href="https://archive.is/NvY9t">(archive)</a>
+<br>
 
 <br>
 YVETTE COOPER
