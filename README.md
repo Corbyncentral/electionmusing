@@ -673,7 +673,7 @@ EDUCATION
 <br>
 <a href="https://www.thecanary.co/2017/07/12/children-young-10-judged-secret-system-teachers-not-allowed-see/">Children as young as 10 are being judged by a secret system that teachers are not allowed to see</a> <a href="https://archive.is/f3gf0">(archive)</a>
 <br>
-<a ref="http://evolvepolitics.com/tory-press-admits-to-keeping-society-stupid-in-order-to-keep-their-vote/">The right-wing press finally admit that “being unintelligent and uneducated helps you vote Conservative”</a> <a href="https://archive.is/SOACe">(archive)</a>
+<a href="http://evolvepolitics.com/tory-press-admits-to-keeping-society-stupid-in-order-to-keep-their-vote/">The right-wing press finally admit that “being unintelligent and uneducated helps you vote Conservative”</a> <a href="https://archive.is/SOACe">(archive)</a>
 <br>
 
 <br>
