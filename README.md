@@ -974,6 +974,8 @@ BREXIT
 <br>
 <a href="https://amp.theguardian.com/politics/2017/jul/29/uk-border-customs-chaos-hit-hard-brexit">Border chaos will hit hard after Brexit, says report</a> <a href="https://archive.is/7tU2T">(archive)</a>
 <br>
+<a href="https://www.theguardian.com/science/political-science/2017/aug/02/our-60-year-relationship-with-euratom-offers-hard-lessons-for-brexit-negotiators">Our 60-year relationship with Euratom offers hard lessons for Brexit negotiators</a> <a href="https://archive.is/klx7b">(archive)</a>
+<br>
 
 <br>
 PANAMA PAPERS AND TAXATION
