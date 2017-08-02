@@ -1048,6 +1048,14 @@ Labour’s Israel lobby plans to relaunch campaign against Corbyn</a> <a href="h
 <a href="http://freespeechonisrael.org.uk/jeremy-corbyn/">I’m a British Jew, and I Don’t Fear a Corbyn Victory I’d Welcome It</a> <a href="https://archive.is/NwFci">(archive)</a>
 <br>
 
+
+<br>
+VENEZUELA
+<br>
+<a href="http://www.independent.co.uk/news/world/americas/cia-venezuela-crisis-government-mike-pompeo-helping-install-new-remarks-a7859771.html">CIA chief hints agency is working to change Venezuelan government</a> <a href="https://web.archive.org/web/20170802201632/http://www.independent.co.uk/news/world/americas/cia-venezuela-crisis-government-mike-pompeo-helping-install-new-remarks-a7859771.html">(archive)</a>
+<br>
+
+
 <br>
 YVETTE COOPER
 <br>
