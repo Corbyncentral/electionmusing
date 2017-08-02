@@ -1061,6 +1061,8 @@ VENEZUELA
 <br>
 <a href="https://socialistworker.org/2017/06/07/did-socialism-fail-in-venezuela">Did Socialism fail in Venezuela?</a> <a href="https://archive.is/WqXUD">(archive)</a>
 <br>
+<a href="https://www.thecanary.co/2017/08/02/theres-one-massive-problem-desperate-attempts-smear-corbyn-crisis-venezuela/">There’s one massive problem with the desperate attempts to smear Corbyn over the crisis in Venezuela</a> <a href="https://web.archive.org/web/20170802220646/https://www.thecanary.co/2017/08/02/theres-one-massive-problem-desperate-attempts-smear-corbyn-crisis-venezuela/">(archive)</a>
+<br>
 
 <br>
 YVETTE COOPER
