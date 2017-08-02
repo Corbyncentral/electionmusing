@@ -1058,6 +1058,8 @@ VENEZUELA
 <br>
 <a href="http://morningstaronline.co.uk/a-9b2f-CIA-confirms-the-US-has-its-eyes-on-Venezuelas-oil#.WYI6a0HTWEd">Trump’s intervention in Venezuela represents another chapter in the long history of US interference in Latin America</a> <a href="https://archive.is/NvY9t">(archive)</a>
 <br>
+<a href="https://socialistworker.org/2017/06/07/did-socialism-fail-in-venezuela">Did Socialism fail in Venezuela?</a> <a href="https://archive.is/WqXUD">(archive)</a>
+<br>
 
 <br>
 YVETTE COOPER
