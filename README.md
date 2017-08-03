@@ -979,6 +979,8 @@ BREXIT
 <br>
 <a href="https://www.theguardian.com/science/political-science/2017/aug/02/our-60-year-relationship-with-euratom-offers-hard-lessons-for-brexit-negotiators">Our 60-year relationship with Euratom offers hard lessons for Brexit negotiators</a> <a href="https://archive.is/klx7b">(archive)</a>
 <br>
+<a href="http://www.reuters.com/article/us-britain-eu-trade-idUSKBN1AI1XQ">Britain to create post-Brexit group to handle trade disputes</a> <a href="https://archive.is/XDY9l">(archive)</a>
+<br>
 
 <br>
 PANAMA PAPERS AND TAXATION
