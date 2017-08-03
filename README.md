@@ -1068,6 +1068,9 @@ VENEZUELA
 <br>
 <a href="https://www.thecanary.co/2017/08/02/theres-one-massive-problem-desperate-attempts-smear-corbyn-crisis-venezuela/">There’s one massive problem with the desperate attempts to smear Corbyn over the crisis in Venezuela</a> <a href="https://web.archive.org/web/20170802220646/https://www.thecanary.co/2017/08/02/theres-one-massive-problem-desperate-attempts-smear-corbyn-crisis-venezuela/">(archive)</a>
 <br>
+<a href="https://sputniknews.com/amp/military/201707261055890332-us-venezuela-coup-latinamerica/">Shock Horror! CIA Director Admits US Trying to Overthrow Venezuelan Government</a> <a href="https://archive.is/jNNlB">(archive)</a>
+<br>
+
 
 <br>
 YVETTE COOPER
