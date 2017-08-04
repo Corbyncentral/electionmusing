@@ -1300,6 +1300,8 @@ Journalist's Guide To Opinion Polls</a>
 <br>
 <a href="http://www.mirror.co.uk/news/ampp3d/buying-12-things-means-youre-5391826.amp">Buying these 11 things means you're unwittingly funding the Tories</a> <a href="https://web.archive.org/web/20170730205702/http://www.mirror.co.uk/news/ampp3d/buying-12-things-means-youre-5391826.amp">(archive)</a>
 <br>
+<a href="https://amp.theguardian.com/commentisfree/2012/mar/29/short-history-of-privatisation">A short history of privatisation in the UK: 1979-2012</a> <a href="https://archive.is/7bVbV">(archive)</a>
+<br>
 
 
 <br>
