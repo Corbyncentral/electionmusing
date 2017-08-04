@@ -519,6 +519,8 @@ MORE ON GRENFELL
 <br>
 <a href="http://www.independent.co.uk/news/uk/crime/grenfell-tower-fire-latest-news-corporate-manslaughter-kensington-council-kctmo-met-police-a7863616.html?amp">Grenfell: Police say they have 'reasonable grounds' to suspect Kensington Council and TMO committed corporate manslaughter</a> <a href="https://web.archive.org/web/20170727174238/http://www.independent.co.uk/news/uk/crime/grenfell-tower-fire-latest-news-corporate-manslaughter-kensington-council-kctmo-met-police-a7863616.html?amp">(archive)</a>
 <br>
+<a href="http://www.independent.co.uk/voices/grenfell-tower-inquiry-deregulation-thatcher-tony-blair-fire-service-cuts-a7876346.html?amp">This is how neoliberalism, led by Thatcher and Blair, is to blame for the Grenfell Tower disaster</a> <a href="https://web.archive.org/web/20170804215446/http://www.independent.co.uk/voices/grenfell-tower-inquiry-deregulation-thatcher-tony-blair-fire-service-cuts-a7876346.html?amp">(archive)</a>
+<br>
 
 <br>
 HOUSING
