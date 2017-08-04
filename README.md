@@ -1113,7 +1113,6 @@ MICHAEL FALLON
 <br>
 JEREMY HUNT
 <br>
-
 <a href="http://www.independent.co.uk/news/uk/jeremy-hunt-accused-of-lying-and-manipulating-statistics-by-junior-doctor-during-live-bbc-interview-a6861116.html">Jeremy Hunt accused of 'lying and manipulating statistics' by junior doctor during live BBC interview</a> <a href="https://web.archive.org/web/20170629163421/http://www.independent.co.uk/news/uk/jeremy-hunt-accused-of-lying-and-manipulating-statistics-by-junior-doctor-during-live-bbc-interview-a6861116.html">(archive)</a>
 <br>
 <a href="http://www.thelondoneconomic.com/news/politics/jeremy-hunt-accused-gp-lying-election-night-reply-dynamite/13/06/">Jeremy Hunt accused this GP of lying on election night. Her reply is dynamite.</a> <a href="https://archive.is/O16aU">(archive)</a>
@@ -1143,6 +1142,8 @@ BORIS JOHNSON
 <a href="http://www.mirror.co.uk/news/politics/boris-johnsons-most-cringeworthy-gaffes-10440606">Boris Johnson's most cringeworthy gaffes revealed after he insults Sikh woman on visit to holy temple</a> <a href="https://archive.is/9aOnG">(archive)</a>
 <br>
 <a href="https://www.theguardian.com/uk-news/2016/dec/14/boris-johnsons-unused-water-cannon-were-fitted-with-1000-stereos">Boris Johnson's unused water cannon had £1,000 stereos fitted</a> <a href="https://archive.is/8R5jk">(archive)</a>
+<br>
+<a href="http://www.independent.co.uk/voices/boris-johnson-political-incorrectness-prince-philip-tweet-foreign-secretary-a7875111.html?amp">Boris Johnson's tribute to Prince Philip proves that he is the most unsuitable person in the country to be Foreign Secretary</a> <a href="https://web.archive.org/web/20170804204044/http://www.independent.co.uk/voices/boris-johnson-political-incorrectness-prince-philip-tweet-foreign-secretary-a7875111.html?amp">(archive)</a>
 <br>
 
 <br>
