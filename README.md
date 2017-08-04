@@ -930,6 +930,8 @@ UN
 <br>
 <a href="https://www.theguardian.com/business/2016/nov/07/uk-austerity-policies-amount-to-violations-of-disabled-peoples-rights">UK austerity policies 'amount to violations of disabled people's rights'</a> <a href="https://archive.is/mz9pT">(archive)</a>
 <br>
+<a href="http://www.independent.co.uk/news/uk/politics/un-uk-refugees-take-in-10000-per-year-immigration-pledge-government-theresa-may-crisis-a7876196.html?amp">UN tells Britain to double the amount of refugees it takes in to 10,000 per year</a> <a href="https://web.archive.org/web/20170804214421/http://www.independent.co.uk/news/uk/politics/un-uk-refugees-take-in-10000-per-year-immigration-pledge-government-theresa-may-crisis-a7876196.html?amp">(archive)</a>
+<br>
 
 <br>
 BREXIT
