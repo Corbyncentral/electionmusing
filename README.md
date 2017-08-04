@@ -62,6 +62,8 @@ NEGATIVE TACTICS
 <br>
 <a href="http://evolvepolitics.com/tory-donor-corbyn-spike-pimlico-plumbers/">Unhinged Tory Donor advocates having Jeremy Corbyn killed on his official company website</a> <a href="https://archive.is/xky91">(archive)</a>
 <br>
+<a href="https://www.thecanary.co/2017/08/04/conservative-twitter-account-vanishes-overnight-now-know-images/">Conservative Twitter account vanishes overnight, and now we know why</a> <a href="https://web.archive.org/web/20170804142612/https://www.thecanary.co/2017/08/04/conservative-twitter-account-vanishes-overnight-now-know-images/">(archive)</a>
+<br>
 
 <br>
 SCOTLAND
