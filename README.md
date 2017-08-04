@@ -359,6 +359,8 @@ AUSTERITY/WELFARE
 <br>
 <a href="http://www.independent.co.uk/news/uk/home-news/sexual-health-clinics-breaking-point-government-cuts-local-government-association-hiv-gonorrhoea-a7874076.html?amp">Sexual health clinics 'at tipping point' after Government cuts and huge rise in demand, councils warn</a> <a href="https://web.archive.org/web/20170804180039/http://www.independent.co.uk/news/uk/home-news/sexual-health-clinics-breaking-point-government-cuts-local-government-association-hiv-gonorrhoea-a7874076.html?amp">(archive)</a>
 <br>
+<a href="http://www.mirror.co.uk/news/politics/thousands-benefit-claimants-win-legal-10931703.amp">Thousands of benefit claimants win legal victory over Tory government's welfare appeals regime</a> <a href="https://web.archive.org/web/20170804191002/http://www.mirror.co.uk/news/politics/thousands-benefit-claimants-win-legal-10931703.amp">(archive)</a>
+<br>
 
 <br>
 DISABILITY
