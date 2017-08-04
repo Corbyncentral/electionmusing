@@ -578,9 +578,11 @@ ENVIRONMENT
 <br>
 
 <br>
-AGRICULTURE
+AGRICULTURE/FISHERIES
 <br>
 <a href="http://www.independent.co.uk/news/uk/home-news/eu-farming-subsidies-billionaires-high-uk-rich-list-recipients-brexit-james-dyson-earl-rosebery-cap-a7815871.html">EU farming subsidies: One in five biggest recipients are billionaires and millionaires on the UK rich list</a> <a href="https://web.archive.org/web/20170630160530/http://www.independent.co.uk/news/uk/home-news/eu-farming-subsidies-billionaires-high-uk-rich-list-recipients-brexit-james-dyson-earl-rosebery-cap-a7815871.html">(archive)</a>
+<br>
+<a href="https://amp.theguardian.com/politics/2017/aug/03/eu-fishing-boats-can-still-operate-in-uk-waters-after-brexit-says-gove">EU fishing boats can still operate in UK waters after Brexit, says Gove</a> <a href="https://archive.is/mlvzE">(archive)</a>
 <br>
 
 <br>
