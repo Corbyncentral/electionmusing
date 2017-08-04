@@ -357,6 +357,8 @@ AUSTERITY/WELFARE
 <br>
 <a href="https://amp.theguardian.com/society/2017/aug/01/benefit-sanctions-thing-of-past-david-webster">David Webster: ‘Benefit sanctions should be a thing of the past’</a> <a href="https://archive.is/QAkh4">(archive)</a>
 <br>
+<a href="http://www.independent.co.uk/news/uk/home-news/sexual-health-clinics-breaking-point-government-cuts-local-government-association-hiv-gonorrhoea-a7874076.html?amp">Sexual health clinics 'at tipping point' after Government cuts and huge rise in demand, councils warn</a> <a href="https://web.archive.org/web/20170804180039/http://www.independent.co.uk/news/uk/home-news/sexual-health-clinics-breaking-point-government-cuts-local-government-association-hiv-gonorrhoea-a7874076.html?amp">(archive)</a>
+<br>
 
 <br>
 DISABILITY
