@@ -1,7 +1,11 @@
 # Political Links
 
 
-
+<br>
+PRIVACY
+<br>
+<a href="https://www.thecanary.co/2017/08/04/tory-governments-latest-record-breaking-feat-reveals-horrific-path-uk-now-taking/">The Tory government’s latest record-breaking feat reveals the horrific path the UK is now taking</a> <a href="https://web.archive.org/web/20170804174529/https://www.thecanary.co/2017/08/04/tory-governments-latest-record-breaking-feat-reveals-horrific-path-uk-now-taking/">(archive)</a>
+<br>
 
 <br>
 GOOGLE
