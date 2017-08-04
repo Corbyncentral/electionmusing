@@ -377,6 +377,8 @@ DISABILITY
 <br>
 <a href="https://amp.theguardian.com/commentisfree/2017/aug/03/wheelchair-provision-nhs-disability">The UK’s hidden shame: disabled people trapped at home with no wheelchair</a> <a href="https://archive.is/UEtUT">(archive)</a>
 <br>
+<a href="https://www.disabilitynewsservice.com/pip-investigation-200-cases-of-dishonesty-and-still-dwp-atos-and-capita-refuse-to-act/">PIP investigation: 200 cases of dishonesty… and still DWP, Atos and Capita refuse to act</a> <a href="https://web.archive.org/web/20170804135722/https://www.disabilitynewsservice.com/pip-investigation-200-cases-of-dishonesty-and-still-dwp-atos-and-capita-refuse-to-act/">(archive)</a>
+<br>
 
 <br>
 POLICE
