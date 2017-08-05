@@ -1018,6 +1018,8 @@ BREXIT
 <br>
 <a href="http://www.reuters.com/article/us-britain-eu-trade-idUSKBN1AI1XQ">Britain to create post-Brexit group to handle trade disputes</a> <a href="https://archive.is/XDY9l">(archive)</a>
 <br>
+<a href="https://infacts.org/fake_news_posts/daniel-hannan-takes-brexit-untruths-transatlantic/">Daniel Hannan takes his Brexit untruths transatlantic</a> <a href="https://archive.is/eiLrx">(archive)</a>
+<br>
 
 <br>
 PANAMA PAPERS AND TAXATION
