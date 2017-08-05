@@ -601,6 +601,12 @@ ENERGY
 <a href="https://skwawkbox.org/2017/08/01/video-britishgas-price-rockets-but-wheres-the-msm-u-turn-outrage/amp/">Video: #BritishGas price rockets – but where’s the #MSM u-turn outrage?</a> <a href="https://archive.is/YH9YJ">(archive)</a>
 <br>
 
+<br>
+PHONES
+<br>
+<a href="http://www.telegraph.co.uk/news/politics/conservative/12153900/Minister-admits-failure-to-tackle-mobile-signal-black-spots-in-rare-mea-culpa-from-government.html">Minister admits failure to tackle mobile signal black spots in rare 'mea culpa' from government</a> <a href="https://web.archive.org/web/20170805201117/http://www.telegraph.co.uk/news/politics/conservative/12153900/Minister-admits-failure-to-tackle-mobile-signal-black-spots-in-rare-mea-culpa-from-government.html">(archive)</a>
+<br>
+
 
 <br>
 IMMIGRATION
