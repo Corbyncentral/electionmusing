@@ -926,6 +926,8 @@ NHS
 <br>
 <a href="https://amp.theguardian.com/healthcare-network/views-from-the-nhs-frontline/2017/jul/24/general-practice-nhs-recruitment-crisis">General practice is being ground down so that private providers can take over</a> <a href="https://archive.is/iX1Xl">(archive)</a>
 <br>
+<a href="http://m.huffpost.com/uk/entry/17669786?">Is Your Area On The Government’s Latest NHS Hit List?</a> <a href="https://archive.is/xc7HP">(archive)</a>
+<br>
 
 <br>
 UN
