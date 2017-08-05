@@ -840,6 +840,8 @@ CONSERVATIVES AND THE PRESS
 <br>
 <a href="https://www.thecanary.co/2017/06/21/theresa-may-tried-bury-bombshell-britain-distracted-grief-now-might-blow-face/">Theresa May tried to bury this bombshell while Britain was distracted by grief. Now it might blow up in her face</a> <a href="https://web.archive.org/web/20170628222915/https://www.thecanary.co/2017/06/21/theresa-may-tried-bury-bombshell-britain-distracted-grief-now-might-blow-face/">(archive)</a>
 <br>
+<a href="https://skwawkbox.org/2017/08/05/seems-cchq-is-scared-of-the-skwawkbox/amp/">Seems CCHQ is scared of the SKWAWKBOX</a> <a href="https://archive.is/eu7Jd">(archive)</a>
+<br>
 
 <br>
 CORRUPTION ALLEGATIONS
