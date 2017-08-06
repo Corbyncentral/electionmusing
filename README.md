@@ -363,6 +363,8 @@ AUSTERITY/WELFARE
 <br>
 <a href="http://www.mirror.co.uk/news/politics/thousands-benefit-claimants-win-legal-10931703.amp">Thousands of benefit claimants win legal victory over Tory government's welfare appeals regime</a> <a href="https://web.archive.org/web/20170804191002/http://www.mirror.co.uk/news/politics/thousands-benefit-claimants-win-legal-10931703.amp">(archive)</a>
 <br>
+<a href="https://www.theguardian.com/society/2017/aug/06/labour-mps-urge-government-to-delay-universal-credit-rollout">MPs urge government to delay universal credit rollout</a> <a href="https://archive.is/fVzCZ">(archive)</a>
+<br>
 
 <br>
 DISABILITY
