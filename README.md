@@ -1109,6 +1109,11 @@ VENEZUELA
 <a href="http://www.mintpressnews.com/us-led-economic-war-not-socialism-tearing-venezuela-apart/218335/">US-Led Economic War, Not Socialism, Is Tearing Venezuela Apart</a> <a href="https://archive.is/V2p0w">(archive)</a>
 <br>
 
+<br>
+HOUSE OF LORDS
+<br>
+<a href="http://www.thesouthernreporter.co.uk/news/borders-lib-dem-peers-claimed-100-000-allowances-last-year-1-4522002">Borders Lib Dem peers claimed £100,000 allowances last year</a> <a href="http://archive.is/fXk55">(archive)</a>
+<br>
 
 <br>
 YVETTE COOPER
