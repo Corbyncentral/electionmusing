@@ -1106,6 +1106,8 @@ VENEZUELA
 <br>
 <a href="https://sputniknews.com/amp/military/201707261055890332-us-venezuela-coup-latinamerica/">Shock Horror! CIA Director Admits US Trying to Overthrow Venezuelan Government</a> <a href="https://archive.is/jNNlB">(archive)</a>
 <br>
+<a href="http://www.mintpressnews.com/us-led-economic-war-not-socialism-tearing-venezuela-apart/218335/">US-Led Economic War, Not Socialism, Is Tearing Venezuela Apart</a> <a href="https://archive.is/V2p0w">(archive)</a>
+<br>
 
 
 <br>
