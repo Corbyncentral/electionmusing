@@ -1312,6 +1312,12 @@ JUSTINE GREENING
 <br>
 
 <br>
+NIGEL FARAGE
+<br>
+<a href="https://skwawkbox.org/2016/12/30/proof-farage-applied-for-german-citizenship-and-hes-under-police-investigation-for-it/amp/">#Farage ‘applied for German citizenship’ – and could face 5 yrs prison for it</a> <a href="https://archive.is/ZJrbR">(archive)</a>
+<br>
+
+<br>
 JACOB REES-MOGG
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/gregory-lauder-frost-exposed-the-tory-fringe-group-leader-with-nazi-sympathies-8755093.html?amp">Gregory Lauder-Frost exposed: The Tory fringe group leader with Nazi sympathies</a> <a href="https://web.archive.org/web/20170708172944/http://www.independent.co.uk/news/uk/politics/gregory-lauder-frost-exposed-the-tory-fringe-group-leader-with-nazi-sympathies-8755093.html?amp">(archive)</a>
