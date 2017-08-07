@@ -6,6 +6,10 @@ PRIVACY
 <br>
 <a href="https://www.thecanary.co/2017/08/04/tory-governments-latest-record-breaking-feat-reveals-horrific-path-uk-now-taking/">The Tory government’s latest record-breaking feat reveals the horrific path the UK is now taking</a> <a href="https://web.archive.org/web/20170804174529/https://www.thecanary.co/2017/08/04/tory-governments-latest-record-breaking-feat-reveals-horrific-path-uk-now-taking/">(archive)</a>
 <br>
+<a href="http://www.independent.co.uk/life-style/gadgets-and-tech/news/investigatory-powers-bill-act-snoopers-charter-browsing-history-what-does-it-mean-a7436251.html">Do you know which parts of the Government can access your browsing history?</a> <a href="https://web.archive.org/web/20170807195310/http://www.independent.co.uk/life-style/gadgets-and-tech/news/investigatory-powers-bill-act-snoopers-charter-browsing-history-what-does-it-mean-a7436251.html">(archive)</a>
+<br>
+<a href="http://www.theregister.co.uk/2016/12/06/parallel_construction_lies_in_english_courts/">The UK's Investigatory Powers Act allows the State to tell lies in court</a> <a href="https://archive.is/OwMC7">(archive)</a>
+<br>
 
 <br>
 GOOGLE
