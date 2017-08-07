@@ -1322,6 +1322,8 @@ NIGEL FARAGE
 <br>
 <a href="https://skwawkbox.org/2016/12/30/proof-farage-applied-for-german-citizenship-and-hes-under-police-investigation-for-it/amp/">#Farage ‘applied for German citizenship’ – and could face 5 yrs prison for it</a> <a href="https://archive.is/ZJrbR">(archive)</a>
 <br>
+<a href="https://politicalscrapbook.net/2017/08/farage-threatens-to-return-to-political-frontline-gets-slammed-by-twitter/amp/">FARAGE THREATENS TO RETURN TO “POLITICAL FRONTLINE”, GETS SLAMMED BY TWITTER</a> <a href="https://archive.is/eiAkC">(archive)</a>
+<br>
 
 <br>
 JACOB REES-MOGG
