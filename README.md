@@ -373,6 +373,8 @@ AUSTERITY/WELFARE
 <br>
 <a href="http://www.mirror.co.uk/news/politics/tory-government-keeps-report-fit-10946364.amp">Tory government keeps report on fit-for-work tests secret to protect firms' 'commercial interests'</a> <a href="https://web.archive.org/web/20170807182512/http://www.mirror.co.uk/news/politics/tory-government-keeps-report-fit-10946364.amp">(archive)</a>
 <br>
+<a href="http://www.politics.co.uk/news/2017/05/16/dwp-sets-80-benefit-appeal-rejection-target">'Outrageous interference' with rule of law as DWP sets 80% benefit appeal rejection target</a> <a href="https://archive.is/WqbZj">(archive)</a>
+<br>
 
 <br>
 DISABILITY
