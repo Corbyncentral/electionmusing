@@ -1245,6 +1245,9 @@ DAMIEN GREEN
 <br>
 <a href="http://www.welfareweekly.com/meet-the-new-work-and-pensions-secretary-damian-green-mp-his-voting-record/">Meet the new Work and Pensions Secretary, Damian Green MP – his voting record</a> <a href="https://archive.is/gV4fL">(archive)</a>
 <br>
+<a href="http://www.mirror.co.uk/news/politics/tory-welfare-chief-says-disability-10032912.amp">Tory welfare chief says disability benefit appeals are 'extremely low' - on day they hit record high</a> <a href="https://web.archive.org/web/20170807194741/http://www.mirror.co.uk/news/politics/tory-welfare-chief-says-disability-10032912.amp">(archive)</a>
+<br>
+
 
 <br>
 MICHAEL GOVE
