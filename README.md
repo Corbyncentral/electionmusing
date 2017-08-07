@@ -20,6 +20,12 @@ GOOGLE
 <br>
 
 <br>
+FULL FACT "INDEPENDENT" CHECKING
+<br>
+<a href="http://nyebevannews.co.uk/meet-tory-donor-michael-samuel-who-founded-and-funds-full-fact-would-you-trust-them-to-be-unbiased/">Meet Tory donor Michael Samuel who founded and funds full fact, would you trust them to be unbiased?</a> <a href="https://archive.is/olzZp">(archive)</a>
+<br>
+
+<br>
 AUSTERITY RUSE
 <br>
 <a href="http://www.mirror.co.uk/news/politics/stubborn-tory-mps-increase-westminster-10853734.amp">Stubborn Tory MPs increase Westminster refurbishment bill by £2BILLION as they refuse to leave building</a> <a href="https://web.archive.org/web/20170723151221/http://www.mirror.co.uk/news/politics/stubborn-tory-mps-increase-westminster-10853734.amp">(archive)</a>
