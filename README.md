@@ -1324,6 +1324,14 @@ NIGEL FARAGE
 <br>
 <a href="https://politicalscrapbook.net/2017/08/farage-threatens-to-return-to-political-frontline-gets-slammed-by-twitter/amp/">FARAGE THREATENS TO RETURN TO “POLITICAL FRONTLINE”, GETS SLAMMED BY TWITTER</a> <a href="https://archive.is/eiAkC">(archive)</a>
 <br>
+<a href="http://www.independent.co.uk/news/uk/politics/nigel-farage-tax-return-avoidance-evasion-haven-refuses-to-publish-details-a6978861.html">Nigel Farage refuses to publish his tax return</a> <a href="https://web.archive.org/web/20170807180213/http://www.independent.co.uk/news/uk/politics/nigel-farage-tax-return-avoidance-evasion-haven-refuses-to-publish-details-a6978861.html">(archive)</a>
+<br>
+<a href="https://www.theguardian.com/politics/2013/jun/21/nigel-farage-tax-haven-trust-fund-mistake">Nigel Farage admits setting up tax haven trust fund was a mistake</a> <a href="https://archive.is/qxABv">(archive)</a>
+<br>
+<a href="https://www.theguardian.com/politics/2009/may/24/mps-expenses-ukip-nigel-farage">Ukip leader Nigel Farage boasts of his £2m in expenses</a> <a href="https://archive.is/HIC8C">(archive)</a>
+<br>
+<a href="http://www.bbc.co.uk/news/uk-politics-27818780">UKIP leader Nigel Farage declares £205,603 in gifts</a> <a href="https://archive.is/gG6Ck">(archive)</a>
+<br>
 
 <br>
 JACOB REES-MOGG
