@@ -1141,6 +1141,8 @@ VENEZUELA
 <br>
 <a href="http://www.mintpressnews.com/us-led-economic-war-not-socialism-tearing-venezuela-apart/218335/">US-Led Economic War, Not Socialism, Is Tearing Venezuela Apart</a> <a href="https://archive.is/V2p0w">(archive)</a>
 <br>
+<a href="https://skwawkbox.org/2017/08/07/rightist-labour-mps-busted-exploiting-venezuela-for-a-shot-at-corbyn/amp/">Rightist Labour MPs busted exploiting Venezuela for a shot at Corbyn</a> <a href="https://archive.is/X41Yf">(archive)</a>
+<br>
 
 <br>
 HOUSE OF LORDS
