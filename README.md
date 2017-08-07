@@ -375,6 +375,8 @@ AUSTERITY/WELFARE
 <br>
 <a href="http://www.politics.co.uk/news/2017/05/16/dwp-sets-80-benefit-appeal-rejection-target">'Outrageous interference' with rule of law as DWP sets 80% benefit appeal rejection target</a> <a href="https://archive.is/WqbZj">(archive)</a>
 <br>
+<a href="http://www.mirror.co.uk/news/uk-news/tories-blew-100k-public-money-9273121.amp">Tories blew £100k of public money hiding list of firms that used jobseekers for unpaid work</a> <a href="https://web.archive.org/web/20170807215503/http://www.mirror.co.uk/news/uk-news/tories-blew-100k-public-money-9273121.amp">(archive)</a>
+<br>
 
 <br>
 DISABILITY
