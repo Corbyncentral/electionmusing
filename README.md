@@ -477,6 +477,13 @@ LAW
 <a href="http://www.independent.co.uk/news/uk/politics/ministers-sneak-out-plans-privatisation-court-fines-liz-truss-richard-burgon-a7871636.html?amp">Ministers 'sneak out' plans to privatise collection of court fines</a> <a href="https://web.archive.org/web/20170801190553/http://www.independent.co.uk/news/uk/politics/ministers-sneak-out-plans-privatisation-court-fines-liz-truss-richard-burgon-a7871636.html?amp">(archive)</a>
 <br>
 
+<br>
+DRUG POLICY
+<br>
+<a href="http://www.independent.co.uk/news/uk/politics/anti-drug-policy-government-16-billion-theresa-may-usage-levels-illicit-illegal-a7881356.html">Government accused of 'squandering' £1.6bn a year on anti-drug policy</a> <a href="https://web.archive.org/web/20170807214731/http://www.independent.co.uk/news/uk/politics/anti-drug-policy-government-16-billion-theresa-may-usage-levels-illicit-illegal-a7881356.html">(archive)</a>
+<br>
+
+
 
 <br>
 FIRE
