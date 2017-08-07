@@ -1026,6 +1026,10 @@ BREXIT
 <br>
 <a href="https://infacts.org/fake_news_posts/daniel-hannan-takes-brexit-untruths-transatlantic/">Daniel Hannan takes his Brexit untruths transatlantic</a> <a href="https://archive.is/eiLrx">(archive)</a>
 <br>
+<a href="http://www.independent.co.uk/news/uk/politics/uk-eu-divorce-bill-half-pay-brexit-leave-campaign-referendum-350-million-brussels-a7881286.html">UK is paying the EU less than half the sum claimed by Brexit campaigners, reveal new figures</a> <a href="https://web.archive.org/web/20170807153142/http://www.independent.co.uk/news/uk/politics/uk-eu-divorce-bill-half-pay-brexit-leave-campaign-referendum-350-million-brussels-a7881286.html">(archive)</a>
+<br>
+
+
 
 <br>
 PANAMA PAPERS AND TAXATION
