@@ -1394,6 +1394,11 @@ JACOB REES-MOGG
 <a href="https://amp.ft.com/content/d5efd3a0-b32f-11e6-a37c-f4a01f1b0fa1">Rees-Mogg wife’s ancestral home benefits from £7.6m state rescue</a> <a href="https://archive.is/yrTf4">(archive)</a>
 <br>
 
+<br>
+TONY BLAIR
+<br>
+<a href="https://www.thelondoneconomic.com/news/blair-getting-desperate-political-donors-desert-new-party/07/08/amp/">Blair getting desperate as political donors desert new party</a> <a href="https://archive.is/gKkNu">(archive)</a>
+<br>
 
 <br>
 MISCELLANEOUS 
