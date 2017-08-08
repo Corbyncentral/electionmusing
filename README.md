@@ -823,6 +823,8 @@ NASTY PARTY
 <br>
 <a href="https://amp.theguardian.com/politics/2017/apr/25/conservative-party-police-bullying-report-elliott-johnson">Conservative party ignored police requests to hand over internal bullying report</a> <a href="https://archive.is/G9lKQ">(archive)</a>
 <br>
+<a href="https://www.theguardian.com/politics/2016/aug/17/inquiry-into-tory-bullying-scandal-finds-13-alleged-victims-of-mark-clarke">Tory bullying inquiry finds 13 alleged victims of Mark Clarke</a> <a href="https://archive.is/xp6VA"</a> 
+<br>
 <a href="http://www.mirror.co.uk/news/politics/voice-mirror-tory-sense-entitlement-10849518.amp">Voice of the Mirror: The Tory sense of entitlement is nauseating as George Osborne receives huge payout</a> <a href="https://web.archive.org/web/20170722103946/http://www.mirror.co.uk/news/politics/voice-mirror-tory-sense-entitlement-10849518.amp">(archive)</a>
 <br>
 <a href="https://amp.theguardian.com/commentisfree/2010/oct/22/nadine-dorries-blog-truth">Nadine Dorries's trouble with the truth</a> <a href="https://archive.is/JKQFd">(archive)</a>
