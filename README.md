@@ -977,6 +977,8 @@ NHS
 <br>
 <a href="http://m.huffpost.com/uk/entry/17669786?">Is Your Area On The Government’s Latest NHS Hit List?</a> <a href="https://archive.is/xc7HP">(archive)</a>
 <br>
+<a href="http://www.bbc.co.uk/news/amp/health-40854631">Maternity wards closed 382 times last year in England</a> <a href="https://archive.is/3bn6C">(archive)</a>
+<br>
 
 <br>
 UN
