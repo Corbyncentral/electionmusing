@@ -1177,6 +1177,12 @@ MICHAEL FALLON
 <br>
 
 <br>
+PRITI PATEL
+<br>
+<a href="http://www.mirror.co.uk/news/politics/tory-minister-finally-stops-using-10949307.amp">Tory minister FINALLY stops using taxpayers' cash to employ her husband</a> <a href="https://web.archive.org/web/20170808121018/http://www.mirror.co.uk/news/politics/tory-minister-finally-stops-using-10949307.amp">(archive)</a>
+<br>
+
+<br>
 JEREMY HUNT
 <br>
 <a href="http://www.independent.co.uk/news/uk/jeremy-hunt-accused-of-lying-and-manipulating-statistics-by-junior-doctor-during-live-bbc-interview-a6861116.html">Jeremy Hunt accused of 'lying and manipulating statistics' by junior doctor during live BBC interview</a> <a href="https://web.archive.org/web/20170629163421/http://www.independent.co.uk/news/uk/jeremy-hunt-accused-of-lying-and-manipulating-statistics-by-junior-doctor-during-live-bbc-interview-a6861116.html">(archive)</a>
