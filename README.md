@@ -1181,6 +1181,8 @@ PRITI PATEL
 <br>
 <a href="http://www.mirror.co.uk/news/politics/tory-minister-finally-stops-using-10949307.amp">Tory minister FINALLY stops using taxpayers' cash to employ her husband</a> <a href="https://web.archive.org/web/20170808121018/http://www.mirror.co.uk/news/politics/tory-minister-finally-stops-using-10949307.amp">(archive)</a>
 <br>
+<a href="https://www.theguardian.com/politics/2014/may/03/tory-cigarette-packaging-rebel-tobacco-lobbyist">Tory cigarette packaging rebel Priti Patel is ex-tobacco lobbyist</a> <a href="https://archive.is/eobyL">(archive)</a>
+<br>
 
 <br>
 JEREMY HUNT
