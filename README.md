@@ -251,6 +251,10 @@ SAUDI ARABIA
 <br>
 <a href="https://www.theguardian.com/uk-news/2017/jul/03/theresa-may-report-foreign-funding-extremists-saudi-arabia">Theresa May sitting on report on foreign funding of UK extremists</a> <a href="https://archive.is/0JC4r">(archive)</a>
 <br>
+<a href="https://www.theguardian.com/business/2017/apr/05/theresa-may-lse-saudi-aramco-uk-london-stock-exchange-oil">May and LSE chief woo Saudi ministers for $2tn Aramco listing</a> <a href="https://archive.is/FPgPc">(archive)</a>
+<br>
+<a href="http://www.bbc.co.uk/news/business-40198447">Aramco: London listing inappropriate, says Royal London</a> <a href="https://archive.is/RBg1b">(archive)</a>
+<br>
 
 <br>
 IRA
