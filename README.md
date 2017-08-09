@@ -249,6 +249,8 @@ SAUDI ARABIA
 <br>
 <a href="http://www.bbc.co.uk/news/uk-politics-40496778">Saudi Arabia has 'clear link' to UK extremism, report says</a> <a href="https://archive.is/OXmx4">(archive)</a>
 <br>
+<a href="https://www.theguardian.com/uk-news/2017/jul/03/theresa-may-report-foreign-funding-extremists-saudi-arabia">Theresa May sitting on report on foreign funding of UK extremists</a> <a href="https://archive.is/0JC4r">(archive)</a>
+<br>
 
 <br>
 IRA
