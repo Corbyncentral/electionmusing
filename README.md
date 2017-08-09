@@ -245,6 +245,9 @@ SAUDI ARABIA
 <br>
 <a href="https://theintercept.com/2017/06/04/tory-uk-saudi-arabia-gifts-money/">Saudi Arabia lavishes Conservative UK officials with gifts, travel and plum consultancies</a> <a href="https://archive.is/BWqLI">(archive)</a>
 <br>
+<a href="https://www.theguardian.com/commentisfree/2016/may/05/saudi-arabia-bombs-yemen-tories-human-rights">Who’s making sure the Saudi bombs keep falling on Yemen? The Tories</a> <a href="https://archive.is/CMVKg">(archive)</a>
+<br>
+
 
 <br>
 IRA
