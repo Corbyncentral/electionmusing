@@ -1152,6 +1152,8 @@ VENEZUELA
 <br>
 <a href="http://www.mintpressnews.com/us-led-economic-war-not-socialism-tearing-venezuela-apart/218335/">US-Led Economic War, Not Socialism, Is Tearing Venezuela Apart</a> <a href="https://archive.is/V2p0w">(archive)</a>
 <br>
+<a href="http://www.telesurtv.net/english/amp/english/news/US-Has-Budgeted-49M-for-Venezuelan-Right-Wing-Since-2009-20170517-0018.html">US Has Budgeted $49M for Venezuelan Right-Wing Since 2009</a> <a href="https://archive.is/ll0Bk">(archive)</a>
+<br>
 <a href="https://skwawkbox.org/2017/08/07/rightist-labour-mps-busted-exploiting-venezuela-for-a-shot-at-corbyn/amp/">Rightist Labour MPs busted exploiting Venezuela for a shot at Corbyn</a> <a href="https://archive.is/X41Yf">(archive)</a>
 <br>
 
