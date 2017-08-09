@@ -1402,9 +1402,11 @@ JACOB REES-MOGG
 <br>
 
 <br>
-TONY BLAIR
+TONY BLAIR/BLAIRITES
 <br>
 <a href="https://www.thelondoneconomic.com/news/blair-getting-desperate-political-donors-desert-new-party/07/08/amp/">Blair getting desperate as political donors desert new party</a> <a href="https://archive.is/gKkNu">(archive)</a>
+<br>
+<a href="http://evolvepolitics.com/pro-eu-blairites-couldnt-care-less-workers-aim-ensure-big-business-always-wins/">The pro-EU Blairites couldn’t care less about workers. Their only aim is ensure big business always wins.</a> <a href="https://archive.is/5j5G6">(archive)</a>
 <br>
 
 <br>
