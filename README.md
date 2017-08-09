@@ -243,7 +243,8 @@ SAUDI ARABIA
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/tory-saudi-arabia-food-hampers-boris-johnson-liam-fox-general-election-2017-conservatives-theresa-a7745206.html">Tory ministers accept 20 luxury food hampers from Saudi Arabian regime worsening famine in Yemen</a> <a href="https://web.archive.org/web/20170809203756/http://www.independent.co.uk/news/uk/politics/tory-saudi-arabia-food-hampers-boris-johnson-liam-fox-general-election-2017-conservatives-theresa-a7745206.html">(archive)</a>
 <br>
-
+<a href="https://theintercept.com/2017/06/04/tory-uk-saudi-arabia-gifts-money/">Saudi Arabia lavishes Conservative UK officials with gifts, travel and plum consultancies</a> <a href="https://archive.is/BWqLI">(archive)</a>
+<br>
 
 <br>
 IRA
