@@ -1135,6 +1135,9 @@ Labour’s Israel lobby plans to relaunch campaign against Corbyn</a> <a href="h
 <br>
 <a href="http://freespeechonisrael.org.uk/jeremy-corbyn/">I’m a British Jew, and I Don’t Fear a Corbyn Victory I’d Welcome It</a> <a href="https://archive.is/NwFci">(archive)</a>
 <br>
+<a href="http://www.independent.co.uk/voices/jeremy-corbyn-anti-semitism-labour-conference-jewish-supporter-vote-political-weapon-a7330891.html?amp">As a Jewish Labour member, I'm sick of anti-Semitism being used as a political weapon against Jeremy Corbyn</a> <a href="https://web.archive.org/web/20170809144713/http://www.independent.co.uk/voices/jeremy-corbyn-anti-semitism-labour-conference-jewish-supporter-vote-political-weapon-a7330891.html?amp">(archive)</a>
+<br>
+
 
 
 <br>
