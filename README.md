@@ -606,6 +606,9 @@ HOMELESSNESS
 <br>
 <a href="http://www.mirror.co.uk/news/uk-news/homelessness-record-levels-numbers-rise-9688811">Homelessness at record levels as numbers rise at 'appalling rate' since Tories came to power</a> <a href="https://archive.is/8AFcV">(archive)</a>
 <br>
+<a href="http://www.mirror.co.uk/news/politics/twice-many-people-sleeping-rough-10961096.amp">Twice as many people are sleeping rough in Tory Britain as we thought, alarming new study reveals</a> <a href="https://web.archive.org/web/20170810122709/http://www.mirror.co.uk/news/politics/twice-many-people-sleeping-rough-10961096.amp">(archive)</a>
+<br>
+
 
 
 <br>
