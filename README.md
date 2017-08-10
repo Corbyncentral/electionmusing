@@ -1006,6 +1006,8 @@ NHS
 <br>
 <a href="http://www.bbc.co.uk/news/amp/health-40854631">Maternity wards closed 382 times last year in England</a> <a href="https://archive.is/3bn6C">(archive)</a>
 <br>
+<a href="http://www.independent.co.uk/news/uk/politics/nhs-hospital-land-secret-sale-tories-privatisation-sell-off-theresa-may-labour-warning-medical-sites-a7885071.html?amp">Tories accused of secret 'fire sale' of hospital land to bail out cash-strapped NHS</a> <a href="https://web.archive.org/web/20170810115414/http://www.independent.co.uk/news/uk/politics/nhs-hospital-land-secret-sale-tories-privatisation-sell-off-theresa-may-labour-warning-medical-sites-a7885071.html?amp">(archive)</a>
+<br>
 
 <br>
 UN
