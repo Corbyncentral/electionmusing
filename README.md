@@ -86,6 +86,8 @@ SCOTLAND
 <br>
 <a href="http://www.heraldscotland.com/news/15399282.Tory_MSPs_face_massive_financial_hit_in_double_jobs_crackdown_at_Holyrood/?ref=twtrec">Tory MSPs face massive financial hit in double jobs crackdown at Holyrood</a> <a href="https://archive.is/cJzei">(archive)</a>
 <br>
+<a href="http://uk.businessinsider.com/scottish-uk-governments-fail-to-reach-an-agreement-on-brexit-repeal-bill2017-8?r=US&IR=T">'A very significant crisis': Scottish and UK governments fail to reach an agreement on Brexit</a> <a href="https://archive.is/U5fJq">(archive)</a>
+<br>
 
 <br>
 NORTH SOUTH DIVIDE
