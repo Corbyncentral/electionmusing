@@ -1197,6 +1197,8 @@ VENEZUELA
 <br>
 <a href="https://skwawkbox.org/2017/08/07/rightist-labour-mps-busted-exploiting-venezuela-for-a-shot-at-corbyn/amp/">Rightist Labour MPs busted exploiting Venezuela for a shot at Corbyn</a> <a href="https://archive.is/X41Yf">(archive)</a>
 <br>
+<a href="https://skwawkbox.org/2017/08/10/whats-really-happening-in-venezuela-from-someone-who-knows/amp/">What’s REALLY happening in #Venezuela – from someone who knows</a> <a href="https://archive.is/NPPMJ">(archive)</a>
+<br>
 
 <br>
 HOUSE OF LORDS
