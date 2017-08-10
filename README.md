@@ -1092,6 +1092,8 @@ BREXIT
 <br>
 <a href="http://www.independent.co.uk/voices/european-arrest-warrant-brexit-david-davis-hardline-tory-mps-julian-assange-a7882146.html?amp">If hardline Tory MPs get their way, London will become the new 'Costa Del Crime' after Brexit</a> <a href="https://web.archive.org/web/20170808140537/http://www.independent.co.uk/voices/european-arrest-warrant-brexit-david-davis-hardline-tory-mps-julian-assange-a7882146.html?amp">(archive)</a>
 <br>
+<a href="https://www.opendemocracy.net/uk/kyla-mandel/revealed-climate-science-deniers-behind-brexit-campaign">Revealed: the climate science deniers behind the Brexit campaign</a> <a href="https://archive.is/HJ3vE">(archive)</a>
+<br>
 
 
 <br>
