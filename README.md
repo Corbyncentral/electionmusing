@@ -633,6 +633,15 @@ ENVIRONMENT
 <br>
 
 <br>
+IVORY TRADE
+<br>
+<a href="http://www.independent.co.uk/news/uk/politics/conservatives-ivory-trade-ban-2017-manifesto-scrap-pledge-illegal-poaching-a7748581.html">Conservatives quietly bin pledge to ban ivory trade in 2017 manifesto</a> <a href="https://web.archive.org/web/20170810003911/http://www.independent.co.uk/news/uk/politics/conservatives-ivory-trade-ban-2017-manifesto-scrap-pledge-illegal-poaching-a7748581.html">(archive)</a>
+<br>
+<a href="https://amp.theguardian.com/environment/2017/aug/10/uk-named-as-worlds-largest-legal-ivory-exporter">UK named as world's largest legal ivory exporter</a> <a href="https://archive.is/yGxtd">(archive)</a>
+<br>
+
+
+<br>
 AGRICULTURE/FISHERIES
 <br>
 <a href="http://www.independent.co.uk/news/uk/home-news/eu-farming-subsidies-billionaires-high-uk-rich-list-recipients-brexit-james-dyson-earl-rosebery-cap-a7815871.html">EU farming subsidies: One in five biggest recipients are billionaires and millionaires on the UK rich list</a> <a href="https://web.archive.org/web/20170630160530/http://www.independent.co.uk/news/uk/home-news/eu-farming-subsidies-billionaires-high-uk-rich-list-recipients-brexit-james-dyson-earl-rosebery-cap-a7815871.html">(archive)</a>
