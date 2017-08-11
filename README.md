@@ -1199,6 +1199,8 @@ VENEZUELA
 <br>
 <a href="https://skwawkbox.org/2017/08/10/whats-really-happening-in-venezuela-from-someone-who-knows/amp/">What’s REALLY happening in #Venezuela – from someone who knows</a> <a href="https://archive.is/NPPMJ">(archive)</a>
 <br>
+<a href="http://evolvepolitics.com/corbyn-tories-weapons-maduro-sales-venezuela/">Forget about Corbyn. The Tories have literally sold Maduro the weapons he uses to crush protesters</a> <a href="https://archive.is/AghdC">(archive)</a>
+<br>
 
 <br>
 HOUSE OF LORDS
