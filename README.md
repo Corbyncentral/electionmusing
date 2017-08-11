@@ -510,6 +510,8 @@ LAW
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/ministers-sneak-out-plans-privatisation-court-fines-liz-truss-richard-burgon-a7871636.html?amp">Ministers 'sneak out' plans to privatise collection of court fines</a> <a href="https://web.archive.org/web/20170801190553/http://www.independent.co.uk/news/uk/politics/ministers-sneak-out-plans-privatisation-court-fines-liz-truss-richard-burgon-a7871636.html?amp">(archive)</a>
 <br>
+<a href="https://www.thecanary.co/2017/08/11/tory-government-quietly-adds-chilling-detail-brexit-bill-reveals-true-agenda/">The Tory government quietly adds a ‘chilling’ detail to its Brexit bill that reveals its true agenda</a> <a href="https://web.archive.org/web/20170811175344/https://www.thecanary.co/2017/08/11/tory-government-quietly-adds-chilling-detail-brexit-bill-reveals-true-agenda/">(archive)</a>
+<br>
 
 <br>
 DRUG POLICY
