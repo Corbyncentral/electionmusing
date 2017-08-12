@@ -1371,6 +1371,9 @@ DAVID DAVIS
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/david-davis-thick-as-mince-lazy-as-a-toad-dominic-cummings-a7845911.html?amp">David Davis is as 'thick as mince' and as 'lazy as a toad', says Vote Leave chief</a> <a href="https://web.archive.org/web/20170717205457/http://www.independent.co.uk/news/uk/politics/david-davis-thick-as-mince-lazy-as-a-toad-dominic-cummings-a7845911.html?amp">(archive)</a>
 <br>
+<a href="https://amp.theguardian.com/politics/2017/aug/12/david-davis-linked-to-city-trader-fined-for-insider-dealing">David Davis linked to City trader fined for insider dealing</a> <a href="https://web.archive.org/web/20170812224627/https://amp.theguardian.com/politics/2017/aug/12/david-davis-linked-to-city-trader-fined-for-insider-dealing">(archive)</a>
+<br>
+
 
 <br>
 CHRIS GRAYLING
