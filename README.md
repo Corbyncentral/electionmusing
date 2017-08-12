@@ -1310,6 +1310,8 @@ LIAM FOX
 <br>
 <a href="http://www.telegraph.co.uk/news/newstopics/mps-expenses/conservative-mps-expenses/8817286/Defence-Secretary-Liam-Fox-used-expenses-to-pay-his-best-man-Adam-Werritty.html">Defence Secretary Liam Fox used expenses to pay his best man Adam Werritty</a> <a href="https://archive.is/h34a">(archive)</a>
 <br>
+<a href="http://www.mirror.co.uk/news/politics/tory-liam-fox-denies-sending-10011715.amp">Tory Liam Fox denies sending controversial tweet while sitting in front of a giant picture of it</a> <a href="https://web.archive.org/web/20170812222726/http://www.mirror.co.uk/news/politics/tory-liam-fox-denies-sending-10011715.amp">(archive)</a>
+<br>
 
 <br>
 AMBER RUDD
