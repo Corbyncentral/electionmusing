@@ -1263,6 +1263,8 @@ JEREMY HUNT
 <br>
 <a href="http://www.independent.co.uk/news/health/nhs-documents-jeremy-hunt-delayed-telling-patients-mislaid-confidential-sbs-nao-report-a7809496.html">Jeremy Hunt and NHS 'delayed telling patients' about mislaid confidential documents after private firm blunder</a> <a href="https://web.archive.org/web/20170629170113/http://www.independent.co.uk/news/health/nhs-documents-jeremy-hunt-delayed-telling-patients-mislaid-confidential-sbs-nao-report-a7809496.html">(archive)</a>
 <br>
+<a href="http://evolvepolitics.com/jeremy-hunt-spent-44k-tax-money-bathroom-weeks-denying-nurses-pay-rise/">Jeremy Hunt spent £44k of YOUR TAX MONEY on a personal luxury private bathroom in his penthouse office</a> <a href="https://web.archive.org/web/20170814104000/http://evolvepolitics.com/jeremy-hunt-spent-44k-tax-money-bathroom-weeks-denying-nurses-pay-rise/">(archive)</a>
+<br>
 
 <br>
 BORIS JOHNSON
