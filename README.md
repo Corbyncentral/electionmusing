@@ -1107,6 +1107,8 @@ BREXIT
 <br>
 <a href="https://www.opendemocracy.net/uk/kyla-mandel/revealed-climate-science-deniers-behind-brexit-campaign">Revealed: the climate science deniers behind the Brexit campaign</a> <a href="https://archive.is/HJ3vE">(archive)</a>
 <br>
+<a href="http://www.independent.co.uk/news/uk/politics/brexit-50-studies-impact-economy-nurses-eu-a7893216.html?amp">Government refusing to publish 50 'secret' studies on Brexit impact</a> <a href="https://web.archive.org/web/20170815105613/http://www.independent.co.uk/news/uk/politics/brexit-50-studies-impact-economy-nurses-eu-a7893216.html?amp">(archive)</a>
+<br>
 
 
 <br>
