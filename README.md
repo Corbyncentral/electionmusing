@@ -1459,6 +1459,8 @@ JACOB REES-MOGG
 <br>
 <a href="https://amp.ft.com/content/d5efd3a0-b32f-11e6-a37c-f4a01f1b0fa1">Rees-Mogg wife’s ancestral home benefits from £7.6m state rescue</a> <a href="https://archive.is/yrTf4">(archive)</a>
 <br>
+<a href="https://amp.theguardian.com/commentisfree/2017/aug/14/jacob-rees-mogg-contempt-tory-leadership-pitch">Jacob Rees-Mogg’s pose is fake. The contempt is real</a> <a href="https://archive.is/vm7xB">(archive)</a>
+<br>
 
 <br>
 TONY BLAIR/BLAIRITES
