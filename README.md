@@ -1379,7 +1379,7 @@ DAVID DAVIS
 <br>
 <a href="https://amp.theguardian.com/politics/2017/aug/12/david-davis-linked-to-city-trader-fined-for-insider-dealing">David Davis linked to City trader fined for insider dealing</a> <a href="https://web.archive.org/web/20170812224627/https://amp.theguardian.com/politics/2017/aug/12/david-davis-linked-to-city-trader-fined-for-insider-dealing">(archive)</a>
 <br>
-<a href="http://m.huffpost.com/uk/entry/uk_5992ae64e4b0909642998bbe/amp>Brexit Secretary David Davis Accused By Former Aide Of Being Workshy And Inept</a> <a href="https://archive.is/0p5yh">(archive)</a>
+<a href="http://m.huffpost.com/uk/entry/uk_5992ae64e4b0909642998bbe/amp">Brexit Secretary David Davis Accused By Former Aide Of Being Workshy And Inept</a> <a href="https://archive.is/0p5yh">(archive)</a>
 <br>
 
 
