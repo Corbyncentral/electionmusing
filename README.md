@@ -1467,6 +1467,8 @@ TONY BLAIR/BLAIRITES
 <br>
 <a href="http://evolvepolitics.com/pro-eu-blairites-couldnt-care-less-workers-aim-ensure-big-business-always-wins/">The pro-EU Blairites couldn’t care less about workers. Their only aim is ensure big business always wins.</a> <a href="https://archive.is/5j5G6">(archive)</a>
 <br>
+<a href="http://www.independent.co.uk/voices/tony-blair-uae-middle-east-envoy-qatar-israel-palestine-foreign-office-a7894641.html?amp">Why was Tony Blair being paid by the UAE while working as Middle East envoy?</a> <a href="https://web.archive.org/web/20170815141530/http://www.independent.co.uk/voices/tony-blair-uae-middle-east-envoy-qatar-israel-palestine-foreign-office-a7894641.html?amp">(archive)</a>
+<br>
 
 <br>
 MISCELLANEOUS 
