@@ -118,6 +118,8 @@ BBC
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/liam-fox-bbc-wilfully-ignored-positive-brexit-news-liberal-democrats-alistair-carmichael-eu-andrea-a7856226.html">Tory minister Liam Fox accused of behaving like 'tinpot dictator' over BBC Brexit bias claims</a> <a href="https://web.archive.org/web/20170724142255/http://www.independent.co.uk/news/uk/politics/liam-fox-bbc-wilfully-ignored-positive-brexit-news-liberal-democrats-alistair-carmichael-eu-andrea-a7856226.html">(archive)</a>
 <br>
+<a href="http://evolvepolitics.com/david-davis-revealed-to-holiday-with-bbcs-john-humphrys-and-drinks-regularly-with-andrew-neil/">Huge row engulfs BBC as ex-Conservative aide reveals shocking details of Beeb’s pro-Tory favours</a> <a href="https://archive.is/xzyU1">(archive)</a>
+<br>
 
 <br>
 JEREMY CORBYN
