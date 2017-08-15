@@ -719,7 +719,8 @@ RIGHT WING
 <br>
 <a href="http://www.independent.co.uk/news/world/europe/donald-trump-nigel-farage-europe-politics-le-pen-ukip-afd-authoritarian-populism-yougov-defining-a7430341.html">'Authoritarian populism' behind Donald Trump's victory and Brexit becoming driving force in European politics</a> <a href="https://web.archive.org/web/20170628190727/http://www.independent.co.uk/news/world/europe/donald-trump-nigel-farage-europe-politics-le-pen-ukip-afd-authoritarian-populism-yougov-defining-a7430341.html">(archive)</a>
 <br>
-
+<a href="https://www.thecanary.co/2017/08/15/a-former-tory-adviser-breaks-ranks-and-dishes-the-dirt-on-senior-conservative-links-to-the-far-right-tweets/">A former Tory adviser breaks ranks and dishes the dirt on senior Conservative links to the far right</a> <a href="https://web.archive.org/web/20170815175819/https://www.thecanary.co/2017/08/15/a-former-tory-adviser-breaks-ranks-and-dishes-the-dirt-on-senior-conservative-links-to-the-far-right-tweets/">(archive)</a>
+<br>
 
 
 <br>
