@@ -1112,7 +1112,8 @@ BREXIT
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/brexit-50-studies-impact-economy-nurses-eu-a7893216.html?amp">Government refusing to publish 50 'secret' studies on Brexit impact</a> <a href="https://web.archive.org/web/20170815105613/http://www.independent.co.uk/news/uk/politics/brexit-50-studies-impact-economy-nurses-eu-a7893216.html?amp">(archive)</a>
 <br>
-
+<a href="http://www.politics.co.uk/blogs/2017/08/15/the-government-s-customs-union-plan-is-an-absolute-dog-s-bre">The government's customs union plan is an absolute dog's breakfast</a> <a href="https://archive.is/LZNuP">(archive)</a>
+<br>
 
 <br>
 PANAMA PAPERS AND TAXATION
