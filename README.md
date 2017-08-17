@@ -1024,6 +1024,8 @@ NHS
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/nhs-hospital-land-secret-sale-tories-privatisation-sell-off-theresa-may-labour-warning-medical-sites-a7885071.html?amp">Tories accused of secret 'fire sale' of hospital land to bail out cash-strapped NHS</a> <a href="https://web.archive.org/web/20170810115414/http://www.independent.co.uk/news/uk/politics/nhs-hospital-land-secret-sale-tories-privatisation-sell-off-theresa-may-labour-warning-medical-sites-a7885071.html?amp">(archive)</a>
 <br>
+<a href="https://amp.theguardian.com/commentisfree/2017/aug/17/nhs-cuts-basic-medicines-poor-gps-withdraw-service">Now NHS cuts are stripping basic medicines from the poor</a> <a href="https://archive.is/VshK1">(archive)</a>
+<br>
 
 <br>
 UN
