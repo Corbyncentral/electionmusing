@@ -774,6 +774,8 @@ EDUCATION
 <br>
 <a href="http://evolvepolitics.com/tory-press-admits-to-keeping-society-stupid-in-order-to-keep-their-vote/">The right-wing press finally admit that “being unintelligent and uneducated helps you vote Conservative”</a> <a href="https://archive.is/SOACe">(archive)</a>
 <br>
+<a href="http://www.mirror.co.uk/news/politics/dozens-schools-opened-under-tories-10998968.amp">Dozens of schools that opened under the Tories have already had to shut down</a> <a href="https://web.archive.org/web/20170817155726/http://www.mirror.co.uk/news/politics/dozens-schools-opened-under-tories-10998968.amp">(archive)</a>
+<br>
 
 <br>
 RAILWAYS
