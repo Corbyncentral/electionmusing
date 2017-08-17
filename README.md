@@ -614,6 +614,8 @@ HOMELESSNESS
 <br>
 <a href="http://www.mirror.co.uk/news/politics/twice-many-people-sleeping-rough-10961096.amp">Twice as many people are sleeping rough in Tory Britain as we thought, alarming new study reveals</a> <a href="https://web.archive.org/web/20170810122709/http://www.mirror.co.uk/news/politics/twice-many-people-sleeping-rough-10961096.amp">(archive)</a>
 <br>
+<a href="https://www.thecanary.co/2017/08/17/thousands-people-driven-homelessness-thanks-tory-rule/">Thousands of people are being driven into homelessness thanks to Tory rule</a> <a href="https://web.archive.org/web/20170817141429/https://www.thecanary.co/2017/08/17/thousands-people-driven-homelessness-thanks-tory-rule/">(archive)</a>
+<br>
 
 
 
