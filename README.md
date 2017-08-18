@@ -888,6 +888,8 @@ NASTY PARTY
 <br>
 <a href="http://www.mirror.co.uk/news/uk-news/tory-road-safety-campaigner-escapes-10975694.amp">Tory road safety campaigner escapes with fine after crashing into family's car while nearly TWICE drink drive limit</a> <a href="https://web.archive.org/web/20170813133605/http://www.mirror.co.uk/news/uk-news/tory-road-safety-campaigner-escapes-10975694.amp">(archive)</a>
 <br>
+<a href="http://www.independent.co.uk/news/uk/politics/zac-goldsmith-barcelona-terror-attack-momentum-labour-left-wing-political-points-jeremy-corbyn-a7899921.html?amp">Tory MP Zac Goldsmith links Barcelona terror attack to Labour's Momentum group</a> <a href="https://web.archive.org/web/20170818125910/http://www.independent.co.uk/news/uk/politics/zac-goldsmith-barcelona-terror-attack-momentum-labour-left-wing-political-points-jeremy-corbyn-a7899921.html?amp">(archive)</a>
+<br>
 
 <br>
 ORGREAVE
