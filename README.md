@@ -1281,6 +1281,8 @@ JEREMY HUNT
 <br>
 <a href="http://evolvepolitics.com/jeremy-hunt-spent-44k-tax-money-bathroom-weeks-denying-nurses-pay-rise/">Jeremy Hunt spent £44k of YOUR TAX MONEY on a personal luxury private bathroom in his penthouse office</a> <a href="https://web.archive.org/web/20170814104000/http://evolvepolitics.com/jeremy-hunt-spent-44k-tax-money-bathroom-weeks-denying-nurses-pay-rise/">(archive)</a>
 <br>
+<a href="http://evolvepolitics.com/jeremy-hunt-literally-just-said-stephen-hawking-wrong-scientific-basis-nhs-reform/">Jeremy Hunt literally just said Stephen Hawking was “wrong” on scientific basis for NHS reform</a> <a href="https://archive.is/RvI3d">(archive)</a>
+<br>
 
 <br>
 BORIS JOHNSON
