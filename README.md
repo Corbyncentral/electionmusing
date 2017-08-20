@@ -120,6 +120,8 @@ BBC
 <br>
 <a href="http://evolvepolitics.com/david-davis-revealed-to-holiday-with-bbcs-john-humphrys-and-drinks-regularly-with-andrew-neil/">Huge row engulfs BBC as ex-Conservative aide reveals shocking details of Beeb’s pro-Tory favours</a> <a href="https://archive.is/xzyU1">(archive)</a>
 <br>
+<a href="http://voxpoliticalonline.com/2017/08/20/bbc-hides-important-evidence-to-present-rosy-picture-of-hard-brexit/">BBC hides important evidence to present rosy picture of 'hard Brexit.'</a> <a href="https://archive.is/vtRZO">(archive)</a>
+<br>
 
 <br>
 JEREMY CORBYN
