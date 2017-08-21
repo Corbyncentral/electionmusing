@@ -560,6 +560,8 @@ FIRE
 <br>
 <a href="https://www.thecanary.co/2017/06/23/weve-been-investigating-evidence-grenfell-found-numbing/">We’ve been investigating the evidence about the Grenfell fire. And what we’ve found is numbing.</a> <a href="https://web.archive.org/web/20170628165522/https://www.thecanary.co/2017/06/23/weve-been-investigating-evidence-grenfell-found-numbing/">(archive)</a>
 <br>
+<a href="http://www.independent.co.uk/news/business/news/faulty-white-goods-government-inaction-londonfire-brigade-grenfell-tower-fridges-freezers-flammable-a7905011.html?amp">Government inaction is putting people at risk from faulty white goods, warns fire brigade</a> <a href="https://web.archive.org/web/20170821154056/http://www.independent.co.uk/news/business/news/faulty-white-goods-government-inaction-londonfire-brigade-grenfell-tower-fridges-freezers-flammable-a7905011.html?amp">(archive)</a>
+<br>
 
 <br>
 MORE ON GRENFELL 
