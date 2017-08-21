@@ -1138,6 +1138,8 @@ BREXIT
 <br>
 <a href="http://www.politics.co.uk/blogs/2017/08/15/the-government-s-customs-union-plan-is-an-absolute-dog-s-bre">The government's customs union plan is an absolute dog's breakfast</a> <a href="https://archive.is/LZNuP">(archive)</a>
 <br>
+<a href="https://www.bloomberg.com/news/articles/2017-08-21/u-k-post-brexit-trade-stance-puzzling-ireland-s-varadkar-says">U.K.'s Brexit Trade Stance Leaves Irish PM Confused and Puzzled</a> <a href="http://archive.is/kCWhm">(archive)</a>
+<br>
 
 <br>
 PANAMA PAPERS AND TAXATION
