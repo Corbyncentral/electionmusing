@@ -225,6 +225,8 @@ ARMED FORCES
 <br>
 <a href="https://www.thecanary.co/2017/07/24/the-uks-nuclear-deterrent-has-been-placed-on-red-alert-and-theresa-may-will-be-furious/">The UK’s nuclear deterrent has been placed on ‘red alert’. And Theresa May will be furious</a> <a href="https://web.archive.org/web/20170724231558/https://www.thecanary.co/2017/07/24/the-uks-nuclear-deterrent-has-been-placed-on-red-alert-and-theresa-may-will-be-furious/">(archive)</a>
 <br>
+<a href="http://www.telegraph.co.uk/news/2017/08/21/mod-fails-cut-civilians-help-fill-30bn-defence-black-hole/">MoD fails to cut civilians to help fill '£30bn' defence black hole</a> <a href="http://archive.is/aRjfk">(archive)</a>
+<br>
 
 
 <br>
