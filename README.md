@@ -445,6 +445,8 @@ DISABILITY/DWP
 <br>
 <a href="http://evolvepolitics.com/dwp-assessor-lied-axe-benefits-woman-flesh-eating-disease-claiming-looked-well/">DWP Assessor ‘lied’ to axe benefits of woman with flesh eating disease after claiming she ‘looked well’</a> <a href="https://archive.is/4Qcrs">(archive)</a>
 <br>
+<a href="http://www.independent.co.uk/news/uk/home-news/government-disabled-people-un-convention-treatment-breach-a7900176.html?amp">Government accused of breaching UN convention in its treatment of disabled people</a> <a href="https://web.archive.org/web/20170821003603/http://www.independent.co.uk/news/uk/home-news/government-disabled-people-un-convention-treatment-breach-a7900176.html?amp">(archive)</a>
+<br>
 
 <br>
 POLICE
