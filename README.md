@@ -1071,6 +1071,8 @@ NHS
 <br>
 <a href="https://www.thecanary.co/2017/08/21/private-hospitals-use-charity-status-avoid-tax-whilst-nhs-crippled/">While the NHS is being crippled, private hospitals are using charity status to avoid tax</a> <a href="http://web.archive.org/web/20170822123132/https://www.thecanary.co/2017/08/21/private-hospitals-use-charity-status-avoid-tax-whilst-nhs-crippled/">(archive)</a>
 <br>
+<a href="http://www.huffingtonpost.co.uk/entry/andrea-leadsom-nhs-cuts-horton-hospital-jeremy-hunt-downgrade_uk_599c2490e4b06a788a2bb3ad">Tories Under Fire Over NHS Cuts As Andrea Leadsom Lobbies Jeremy Hunt To Halt Local Hospital Downgrade</a> <a href="http://archive.is/38y0Q">(archive)</a>
+<br>
 
 <br>
 UN
