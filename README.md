@@ -1050,6 +1050,8 @@ NHS
 <br>
 <a href="https://amp.theguardian.com/commentisfree/2017/aug/17/nhs-cuts-basic-medicines-poor-gps-withdraw-service">Now NHS cuts are stripping basic medicines from the poor</a> <a href="https://archive.is/VshK1">(archive)</a>
 <br>
+<a href="https://www.thecanary.co/2017/08/21/private-hospitals-use-charity-status-avoid-tax-whilst-nhs-crippled/">While the NHS is being crippled, private hospitals are using charity status to avoid tax</a> <a href="http://web.archive.org/web/20170822123132/https://www.thecanary.co/2017/08/21/private-hospitals-use-charity-status-avoid-tax-whilst-nhs-crippled/">(archive)</a>
+<br>
 
 <br>
 UN
