@@ -790,6 +790,8 @@ EDUCATION
 <br>
 <a href="http://www.mirror.co.uk/news/politics/dozens-schools-opened-under-tories-10998968.amp">Dozens of schools that opened under the Tories have already had to shut down</a> <a href="https://web.archive.org/web/20170817155726/http://www.mirror.co.uk/news/politics/dozens-schools-opened-under-tories-10998968.amp">(archive)</a>
 <br>
+<a href="https://skwawkbox.org/2017/08/22/tories-boast-re-disadvantaged-uni-students-and-of-course-they-lie/amp/">Tories boast re disadvantaged uni students. And of course they lie</a> <a href="http://archive.is/LOJSY">(archive)</a>
+<br>
 
 <br>
 RAILWAYS
