@@ -227,6 +227,8 @@ ARMED FORCES
 <br>
 <a href="http://www.telegraph.co.uk/news/2017/08/21/mod-fails-cut-civilians-help-fill-30bn-defence-black-hole/">MoD fails to cut civilians to help fill '£30bn' defence black hole</a> <a href="http://archive.is/aRjfk">(archive)</a>
 <br>
+<a href="https://www.thecanary.co/2017/08/21/top-law-firm-just-revealed-damning-truth-tory-made-crisis-military/">A top law firm has just revealed the damning truth about the Tory-made crisis in our military</a> <a href="http://web.archive.org/web/20170822142638/https://www.thecanary.co/2017/08/21/top-law-firm-just-revealed-damning-truth-tory-made-crisis-military/">(archive)</a>
+<br>
 
 
 <br>
