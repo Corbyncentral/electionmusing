@@ -368,6 +368,7 @@ THERESA MAY
 <a href="http://www.independent.co.uk/news/brexit-immigration-theresa-may-report-liberal-democrats-accuse-pm-manipulation-a7334466.html?amp">Theresa May accused of manipulating crucial immigration report before Brexit vote</a> <a href="https://web.archive.org/web/20170728163917/http://www.independent.co.uk/news/brexit-immigration-theresa-may-report-liberal-democrats-accuse-pm-manipulation-a7334466.html?amp">(archive)</a>
 <br>
 
+
 <br>
 AUSTERITY/WELFARE
 <br>
@@ -765,6 +766,12 @@ EMPLOYMENT AND WORKERS' RIGHTS
 <a href="http://uk.businessinsider.com/unemployment-in-the-uk-is-now-so-low-its-in-danger-of-exposing-the-lie-used-to-create-the-numbers-2017-7">Unemployment in the UK is now so low it's in danger of exposing the lie used to create the numbers</a> <a href="https://archive.is/tkfdA">(archive)</a>
 <br>
 <a href="http://uk.businessinsider.com/the-lie-behind-the-unemployment-numbers-2017-7">More on the 'lie' behind the unemployment numbers</a> <a href="https://archive.is/LtMEV">(archive)</a>
+<br>
+
+<br>
+PAY CAP
+<br>
+<a href="http://uk.businessinsider.com/theresa-may-break-promise-excessive-executive-pay-shareholder-vote-fat-cats-2017-8?r=US&IR=T">Theresa May breaks her promise to tackle excessive executive pay</a> <a href="http://archive.is/a0EzB">(archive)</a>
 <br>
 
 <br>
