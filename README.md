@@ -422,6 +422,8 @@ AUSTERITY/WELFARE
 <br>
 <a href="http://www.mirror.co.uk/news/uk-news/tories-blew-100k-public-money-9273121.amp">Tories blew £100k of public money hiding list of firms that used jobseekers for unpaid work</a> <a href="https://web.archive.org/web/20170807215503/http://www.mirror.co.uk/news/uk-news/tories-blew-100k-public-money-9273121.amp">(archive)</a>
 <br>
+<a href="https://www.thelondoneconomic.com/tle-pick/welfare-reforms-allowing-government-massage-true-figures-sanctioned/21/08/amp/">Welfare reforms allowing government to “massage down” true figures of those sanctioned</a> <a href="http://archive.is/oUs5B">(archive)</a>
+<br>
 
 <br>
 DISABILITY/DWP
