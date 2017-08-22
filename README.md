@@ -88,6 +88,8 @@ SCOTLAND
 <br>
 <a href="http://uk.businessinsider.com/scottish-uk-governments-fail-to-reach-an-agreement-on-brexit-repeal-bill2017-8?r=US&IR=T">'A very significant crisis': Scottish and UK governments fail to reach an agreement on Brexit</a> <a href="https://archive.is/U5fJq">(archive)</a>
 <br>
+<a href="http://www.dailyrecord.co.uk/news/politics/ruth-davidsons-failure-offensive-tweet-11029455.amp">Ruth Davidson's failure on offensive tweet councillors is a total disgrace</a> <a href="http://archive.is/qcFMj">(archive)</a>
+<br>
 
 <br>
 NORTH SOUTH DIVIDE
