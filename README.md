@@ -1397,6 +1397,8 @@ AMBER RUDD
 <br>
 <a href="https://amp.theguardian.com/politics/2017/mar/06/amber-rudd-secret-billion-pound-conflict-stability-security-fund">Amber Rudd asked to reveal where secret £1bn conflict fund is spent</a> <a href="https://archive.is/8f3dE">(archive)</a>
 <br>
+<a href="http://www.huffingtonpost.co.uk/entry/eu-nationals-deport-amber-rudd_uk_599da0c6e4b0d97c4000a263?">Amber Rudd To Be Hauled Before MPs After Home Office Wrongly Threatens To Deport EU Nationals</a> <a href="http://archive.is/wfHqn">(archive)</a>
+<br>
 
 <br>
 DAMIEN GREEN
