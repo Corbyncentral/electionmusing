@@ -164,6 +164,8 @@ JEREMY CORBYN
 <br>
 <a href="https://amp.theguardian.com/commentisfree/2017/jul/28/they-just-dont-get-it-video-upset-corbyn-deniers-labour-momentum">The dinner party video has wound up Momentum’s critics. They just don’t get it</a> <a href="https://archive.is/VsgdB">(archive)</a>
 <br>
+<a href="http://evolvepolitics.com/remember-traingate-never-seen-cctv-footage-emerged-proves-corbyn-right-along/">Remember Traingate? Never before seen CCTV footage has emerged, and it proves Corbyn was right all along.</a> <a href="http://archive.is/A7ry0">(archive)</a>
+<br>
 
 <br>
 TERROR
