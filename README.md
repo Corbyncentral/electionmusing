@@ -1240,6 +1240,8 @@ Labour’s Israel lobby plans to relaunch campaign against Corbyn</a> <a href="h
 <br>
 <a href="http://www.independent.co.uk/voices/jeremy-corbyn-anti-semitism-labour-conference-jewish-supporter-vote-political-weapon-a7330891.html?amp">As a Jewish Labour member, I'm sick of anti-Semitism being used as a political weapon against Jeremy Corbyn</a> <a href="https://web.archive.org/web/20170809144713/http://www.independent.co.uk/voices/jeremy-corbyn-anti-semitism-labour-conference-jewish-supporter-vote-political-weapon-a7330891.html?amp">(archive)</a>
 <br>
+<a href="http://evolvepolitics.com/new-yougov-poll-shows-conclusively-conservative-voters-far-anti-semitic-labour-voters/">New CAA report shows conclusively that Tory voters are far more anti-Semitic than Labour voters</a> <a href="http://archive.is/LFQnR">(archive)</a>
+<br>
 
 
 
