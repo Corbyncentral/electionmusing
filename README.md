@@ -1221,6 +1221,8 @@ ECONOMY
 <br>
 <a href="http://uk.businessinsider.com/begbies-traynor-red-flag-report-spike-in-financial-distress-for-smes-2017-7?r=US&IR=T">330,000 British businesses are in 'significant' financial distress and at risk of going bust</a> <a href="https://archive.is/s7tCh">(archive)</a>
 <br>
+<a href="http://www.independent.co.uk/news/business/comment/britain-is-europes-economic-laggard-forget-project-fear-this-is-the-reality-courtesy-of-boris-a7910396.html">Britain is Europe's economic laggard. Forget Project Fear, this is the reality courtesy of Boris Johnson and his chums</a> <a href="http://web.archive.org/web/20170824140141/http://www.independent.co.uk/news/business/comment/britain-is-europes-economic-laggard-forget-project-fear-this-is-the-reality-courtesy-of-boris-a7910396.html">(archive)</a>
+<br>
 
 <br>
 ISRAEL
