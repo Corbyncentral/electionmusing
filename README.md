@@ -1403,6 +1403,8 @@ AMBER RUDD
 <br>
 <a href="http://www.huffingtonpost.co.uk/entry/eu-nationals-deport-amber-rudd_uk_599da0c6e4b0d97c4000a263?">Amber Rudd To Be Hauled Before MPs After Home Office Wrongly Threatens To Deport EU Nationals</a> <a href="http://archive.is/wfHqn">(archive)</a>
 <br>
+<a href="https://amp.theguardian.com/uk-news/2017/aug/23/judge-amber-rudd-orders-torture-victim-asylum-seeker-detention">Judge condemns Amber Rudd for ignoring orders to release torture victim</a> <a href="http://archive.is/0p06w">(archive)</a>
+<br>
 
 <br>
 DAMIEN GREEN
