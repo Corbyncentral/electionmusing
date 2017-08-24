@@ -1223,6 +1223,8 @@ ECONOMY
 <br>
 <a href="http://www.independent.co.uk/news/business/comment/britain-is-europes-economic-laggard-forget-project-fear-this-is-the-reality-courtesy-of-boris-a7910396.html">Britain is Europe's economic laggard. Forget Project Fear, this is the reality courtesy of Boris Johnson and his chums</a> <a href="http://web.archive.org/web/20170824140141/http://www.independent.co.uk/news/business/comment/britain-is-europes-economic-laggard-forget-project-fear-this-is-the-reality-courtesy-of-boris-a7910396.html">(archive)</a>
 <br>
+<a href="https://www.opendemocracy.net/neweconomics/market-fundamentalism-left-britain-economic-relegation-zone-time-rethink/">Market fundamentalism has left Britain in the economic relegation zone – it’s time for a rethink</a> <a href="http://archive.is/ragii">(archive)</a>
+<br>
 
 <br>
 ISRAEL
