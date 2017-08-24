@@ -124,6 +124,8 @@ BBC
 <br>
 <a href="http://voxpoliticalonline.com/2017/08/20/bbc-hides-important-evidence-to-present-rosy-picture-of-hard-brexit/">BBC hides important evidence to present rosy picture of 'hard Brexit.'</a> <a href="https://archive.is/vtRZO">(archive)</a>
 <br>
+<a href="https://www.thecanary.co/2017/08/24/top-professor-just-pulled-apart-bbcs-shameful-pro-brexit-bias/">A top professor has just pulled apart the BBC’s ‘shameful’ pro-Brexit bias</a> <a href="http://web.archive.org/web/20170824213402/https://www.thecanary.co/2017/08/24/top-professor-just-pulled-apart-bbcs-shameful-pro-brexit-bias/">(archive)</a>
+<br>
 
 <br>
 JEREMY CORBYN
