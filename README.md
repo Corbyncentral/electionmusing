@@ -253,6 +253,8 @@ WAR
 <br>
 <a href="https://amp.theguardian.com/commentisfree/2017/feb/12/observer-view-britain-shameful-role-in-arms-trade-arab-spring-yemen">The Observer view on Britain’s shameful role in the arms trade</a> <a href="https://archive.is/dqRiv">(archive)</a>
 <br>
+<a href="https://www.thecanary.co/2017/08/23/theres-massive-arms-fair-coming-london-people-want-make-sure-notice-image/">There’s a massive arms fair coming to London. And these people want to make sure you notice.</a> <a href="http://web.archive.org/web/20170824005958/https://www.thecanary.co/2017/08/23/theres-massive-arms-fair-coming-london-people-want-make-sure-notice-image/">(archive)</a>
+<br>
 
 <br>
 SAUDI ARABIA
