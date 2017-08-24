@@ -925,6 +925,8 @@ NASTY PARTY
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/zac-goldsmith-barcelona-terror-attack-momentum-labour-left-wing-political-points-jeremy-corbyn-a7899921.html?amp">Tory MP Zac Goldsmith links Barcelona terror attack to Labour's Momentum group</a> <a href="https://web.archive.org/web/20170818125910/http://www.independent.co.uk/news/uk/politics/zac-goldsmith-barcelona-terror-attack-momentum-labour-left-wing-political-points-jeremy-corbyn-a7899921.html?amp">(archive)</a>
 <br>
+<a href="http://www.bbc.co.uk/news/amp/uk-england-lancashire-41026792">Rossendale councillor suspended over 'benefit claims'</a> <a href="http://archive.is/06tAj">(archive)</a>
+<br>
 
 <br>
 TOLERANCE OF HATRED AND BIGOTRY
