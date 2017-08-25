@@ -1085,6 +1085,12 @@ NHS
 <br>
 
 <br>
+STEPHEN HAWKING
+<br>
+<a href="https://amp.theguardian.com/commentisfree/2017/aug/25/jeremy-hunt-attack-nhs-stephen-hawking-crisis">Jeremy Hunt can attack me all he wants – but he is wrong to say the NHS is working</a> <a href="http://archive.is/aFsgs">(archive)</a>
+<br>
+
+<br>
 UN
 <br>
 <a href="https://www.thecanary.co/2017/05/05/media-kept-quiet-massive-blow-tories-election-campaign-reporting/">The mainstream media have kept quiet about a major blow to the Tories’ election campaign. So we’re reporting it.</a> <a href="https://web.archive.org/web/20170629014803/https://www.thecanary.co/2017/05/05/media-kept-quiet-massive-blow-tories-election-campaign-reporting/">(archive)</a>
