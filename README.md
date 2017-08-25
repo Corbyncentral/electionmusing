@@ -78,6 +78,8 @@ NEGATIVE TACTICS
 <br>
 <a href="https://www.thecanary.co/2017/08/04/conservative-twitter-account-vanishes-overnight-now-know-images/">Conservative Twitter account vanishes overnight, and now we know why</a> <a href="https://web.archive.org/web/20170804142612/https://www.thecanary.co/2017/08/04/conservative-twitter-account-vanishes-overnight-now-know-images/">(archive)</a>
 <br>
+<a href="http://www.mirror.co.uk/news/politics/police-announce-significant-investigation-tory-11052322.amp">Police announce 'significant' investigation into Tory election call centre</a> <a href="http://web.archive.org/web/20170825135702/http://www.mirror.co.uk/news/politics/police-announce-significant-investigation-tory-11052322.amp">(archive)</a>
+<br>
 
 <br>
 SCOTLAND
