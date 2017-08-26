@@ -1527,6 +1527,14 @@ JUSTINE GREENING
 <br>
 
 <br>
+JAMES CLEVERLY
+<br>
+<a href="http://evolvepolitics.com/second-tory-mp-told-resign-charity-patron-voting-30-esa-cuts/">Second Tory MP told to resign as charity patron after voting for £30 ESA cuts</a> <a href="http://archive.is/0apgS">(archive)</a>
+<br>
+<a href="http://www.bbc.co.uk/news/uk-england-london-11019105">Tory in 'abusive' Twitter insult to MP Simon Hughes</a> <a href="http://archive.is/mfyXU">(archive)</a>
+<br>
+
+<br>
 NIGEL FARAGE
 <br>
 <a href="https://skwawkbox.org/2016/12/30/proof-farage-applied-for-german-citizenship-and-hes-under-police-investigation-for-it/amp/">#Farage ‘applied for German citizenship’ – and could face 5 yrs prison for it</a> <a href="https://archive.is/ZJrbR">(archive)</a>
