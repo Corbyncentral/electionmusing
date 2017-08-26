@@ -1015,6 +1015,8 @@ CORRUPTION ALLEGATIONS
 <br>
 <a href="http://nicholaswilson.com/lord-hague-nissan-hsbc-and-tory-corruption/">Lord Hague, Nissan, HSBC and Tory corruption</a> <a href="https://archive.is/O5c7u">(archive)</a>
 <br>
+<a href="http://evolvepolitics.com/tories-now-significant-police-investigation-allegedly-paying-people-canvas/">Tories now under ‘significant’ police investigation after allegedly paying people to canvas for them</a> <a href="http://archive.is/ACFk1">(archive)</a>
+<br>
 
 <br>
 NHS
