@@ -434,10 +434,6 @@ AUSTERITY/WELFARE
 <br>
 <a href="https://www.thelondoneconomic.com/tle-pick/welfare-reforms-allowing-government-massage-true-figures-sanctioned/21/08/amp/">Welfare reforms allowing government to “massage down” true figures of those sanctioned</a> <a href="http://archive.is/oUs5B">(archive)</a>
 <br>
-
-<br>
-DISABILITY/DWP
-<br>
 <a href="https://www.theguardian.com/commentisfree/2012/jan/18/conservative-party-attacks-disabled-people">I left the Conservative party over its attacks on disabled people</a> <a href="https://archive.is/GrQxL">(archive)</a>
 <br>
 <a href="https://www.theguardian.com/society/2015/jul/21/conservatives-redefining-sick-disabled-welfare-bill">The Tories are callously redefining what it means to be sick or disabled</a> <a href="https://archive.is/THICq">(archive)</a>
@@ -932,6 +928,8 @@ NASTY PARTY
 <a href="http://www.bbc.co.uk/news/amp/uk-england-lancashire-41026792">Rossendale councillor suspended over 'benefit claims'</a> <a href="http://archive.is/06tAj">(archive)</a>
 <br>
 <a href="http://www.yorkpress.co.uk/news/15494755.Row_over_York_Tory_s_Nazis_rally_comment_on_Corbyn/?ref=twtrec">Row over Tory Chris Steward's Nazis rally comment on Corbyn</a> <a href="http://archive.is/PZYr1">(archive)</a>
+<br>
+<a href="https://skwawkbox.org/2017/08/26/exclusive-interview-torys-traveller-shame-and-the-last-acceptable-racism/amp/">Exclusive interview: Tory MP’s traveller shame and the ‘last acceptable racism’</a> <a href="http://archive.is/dZbHY">(archive)</a>
 <br>
 
 <br>
