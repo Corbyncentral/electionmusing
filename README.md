@@ -931,6 +931,8 @@ NASTY PARTY
 <br>
 <a href="http://www.bbc.co.uk/news/amp/uk-england-lancashire-41026792">Rossendale councillor suspended over 'benefit claims'</a> <a href="http://archive.is/06tAj">(archive)</a>
 <br>
+<a href="http://www.yorkpress.co.uk/news/15494755.Row_over_York_Tory_s_Nazis_rally_comment_on_Corbyn/?ref=twtrec">Row over Tory Chris Steward's Nazis rally comment on Corbyn</a> <a href="http://archive.is/PZYr1">(archive)</a>
+<br>
 
 <br>
 TOLERANCE OF HATRED AND BIGOTRY
