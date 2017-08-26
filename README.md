@@ -1464,8 +1464,6 @@ DAVID DAVIS
 <br>
 <a href="http://www.telegraph.co.uk/news/newstopics/mps-expenses/5309646/MPs-expenses-David-Davies-the-council-estate-lad-who-claimed-5700-for-a-portico.html">MPs' expenses: David Davis, the council estate lad who claimed £5,700 for a portico</a> <a href="https://archive.is/ClMp">(archive)</a>
 <br>
-<a href="http://www.newstatesman.com/politics/2012/12/david-davies-mp-im-not-bigoted-i-punched-gay-man">David Davies MP: I'm not bigoted, I punched a gay man</a> <a href="https://archive.is/xh9Tp">(archive)</a>
-<br>
 <a href="http://www.independent.co.uk/news/uk/politics/mps-david-davis-sexist-texts-leaked-diane-abbott-a7576516.html">Labour MPs brand David Davis 'sexist' and 'disgusting' following leaked texts about Diane Abbott</a> <a href="https://web.archive.org/web/20170629182734/http://www.independent.co.uk/news/uk/politics/mps-david-davis-sexist-texts-leaked-diane-abbott-a7576516.html">(archive)</a>
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/david-davis-thick-as-mince-lazy-as-a-toad-dominic-cummings-a7845911.html?amp">David Davis is as 'thick as mince' and as 'lazy as a toad', says Vote Leave chief</a> <a href="https://web.archive.org/web/20170717205457/http://www.independent.co.uk/news/uk/politics/david-davis-thick-as-mince-lazy-as-a-toad-dominic-cummings-a7845911.html?amp">(archive)</a>
@@ -1475,6 +1473,11 @@ DAVID DAVIS
 <a href="http://m.huffpost.com/uk/entry/uk_5992ae64e4b0909642998bbe/amp">Brexit Secretary David Davis Accused By Former Aide Of Being Workshy And Inept</a> <a href="https://archive.is/0p5yh">(archive)</a>
 <br>
 
+<br>
+DAVID DAVIES
+<br>
+<a href="http://www.newstatesman.com/politics/2012/12/david-davies-mp-im-not-bigoted-i-punched-gay-man">David Davies MP: I'm not bigoted, I punched a gay man</a> <a href="https://archive.is/xh9Tp">(archive)</a>
+<br>
 
 <br>
 CHRIS GRAYLING
