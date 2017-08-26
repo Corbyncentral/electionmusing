@@ -736,6 +736,12 @@ IMMIGRATION
 <a href="https://amp.theguardian.com/uk-news/2017/jul/19/uk-not-taken-any-child-refugees-dubs-scheme-this-year">UK has not taken in any child refugees under Dubs scheme this year</a> <a href="https://archive.is/9aWux">(archive)</a>
 <br>
 
+<br>
+HOME OFFICE
+<br>
+<a href="http://www.politics.co.uk/blogs/2017/08/25/the-home-office-not-fit-for-purpose">Week in Review: The Home Office isn't fit for purpose</a> <a href="http://archive.is/eO8S8">(archive)</a>
+<br>
+
 
 <br>
 RIGHT WING
