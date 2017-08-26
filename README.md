@@ -1478,6 +1478,8 @@ DAVID DAVIES
 <br>
 <a href="http://www.newstatesman.com/politics/2012/12/david-davies-mp-im-not-bigoted-i-punched-gay-man">David Davies MP: I'm not bigoted, I punched a gay man</a> <a href="https://archive.is/xh9Tp">(archive)</a>
 <br>
+<a href="https://ukhumanrightsblog.com/2015/01/08/paris-attacks-show-need-to-scrap-human-rights-act-says-tory-mp-with-no-understanding-of-the-human-rights-act/">Paris attacks show need to scrap Human Rights Act, says Tory MP with no understanding of the Human Rights Act</a> <a href="http://archive.is/HsCdG">(archive)</a>
+<br>
 
 <br>
 CHRIS GRAYLING
