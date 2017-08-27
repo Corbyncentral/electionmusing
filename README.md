@@ -502,6 +502,8 @@ PRISONS
 <br>
 <a href="http://www.independent.co.uk/news/uk/home-news/grenfell-tower-fire-safety-prisons-failings-warnings-freedom-of-information-mark-leech-a7866076.html?amp">Fire safety in prisons 'a catastrophe waiting to happen', as failings uncovered in every inspection in past year</a> <a href="https://web.archive.org/web/20170730144854/http://www.independent.co.uk/news/uk/home-news/grenfell-tower-fire-safety-prisons-failings-warnings-freedom-of-information-mark-leech-a7866076.html?amp">(archive)</a>
 <br>
+<a href="http://www.mirror.co.uk/news/uk-news/voice-mirror-prisons-been-turned-11068085.amp">Prisons have been turned into a nightmare place to work by Tory austerity</a> <a href="http://web.archive.org/web/20170827214706/http://www.mirror.co.uk/news/uk-news/voice-mirror-prisons-been-turned-11068085.amp">(archive)</a>
+<br>
 
 
 <br>
