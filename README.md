@@ -1593,6 +1593,8 @@ TONY BLAIR/BLAIRITES
 <br>
 MISCELLANEOUS 
 <br>
+<a href="https://www.byline.com/">BYLINE MEDIA - crowd funded journalism</a>
+<br>
 <a href="https://www.theodysseyonline.com/common-logical-fallacies-politics">The Most Common Logical Fallacies In Politics</a>
 <br>
 <a href="https://yourlogicalfallacyis.com/slippery-slope">Slippery Slope logical fallacy</a>
