@@ -128,6 +128,8 @@ BBC
 <br>
 <a href="https://www.thecanary.co/2017/08/24/top-professor-just-pulled-apart-bbcs-shameful-pro-brexit-bias/">A top professor has just pulled apart the BBC’s ‘shameful’ pro-Brexit bias</a> <a href="http://web.archive.org/web/20170824213402/https://www.thecanary.co/2017/08/24/top-professor-just-pulled-apart-bbcs-shameful-pro-brexit-bias/">(archive)</a>
 <br>
+<a href="https://skwawkbox.org/2017/08/28/bbc-silence-on-toryelectionfraud2-kills-even-pretence-of-impartiality/amp/">BBC silence on #ToryElectionFraud2 kills even pretence of impartiality</a> <a href="http://archive.is/8WMA8">(archive)</a>
+<br>
 
 <br>
 JEREMY CORBYN
