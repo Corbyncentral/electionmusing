@@ -1,5 +1,13 @@
 # Political Links
 
+<br>
+RUSSIA
+<br>
+<a href="https://www.theguardian.com/world/2016/jul/11/what-russia-thinks-of-brexit-and-how-it-could-gain-from-a-fractured-europe">What Russia thinks of Brexit – and how it could gain from a fractured Europe</a> <a href="http://archive.is/egsrh">(archive)</a>
+<br>
+<a href="https://www.byline.com/column/67/article/1789">TRUMP, RUSSIA, AND BREXIT EXPOSED IN NEW BOOK</a> <a href="http://archive.is/1SZ6A">(archive)</a>
+<br>
+
 
 <br>
 PRIVACY
