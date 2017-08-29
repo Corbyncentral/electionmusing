@@ -180,6 +180,8 @@ JEREMY CORBYN
 <br>
 <a href="http://evolvepolitics.com/remember-traingate-never-seen-cctv-footage-emerged-proves-corbyn-right-along/">Remember Traingate? Never before seen CCTV footage has emerged, and it proves Corbyn was right all along.</a> <a href="http://archive.is/A7ry0">(archive)</a>
 <br>
+<a href="http://evolvepolitics.com/who-guards-the-guardian/">The Guardian’s regressive history means that their bias against Corbyn should come as no surprise</a> <a href="http://archive.is/VgtXF">(archive)</a>
+<br>
 
 <br>
 TERROR
