@@ -1388,6 +1388,8 @@ BORIS JOHNSON
 <br>
 <a href="http://www.independent.co.uk/voices/boris-johnson-political-incorrectness-prince-philip-tweet-foreign-secretary-a7875111.html?amp">Boris Johnson's tribute to Prince Philip proves that he is the most unsuitable person in the country to be Foreign Secretary</a> <a href="https://web.archive.org/web/20170804204044/http://www.independent.co.uk/voices/boris-johnson-political-incorrectness-prince-philip-tweet-foreign-secretary-a7875111.html?amp">(archive)</a>
 <br>
+<a href="http://uk.businessinsider.com/donald-trump-administration-think-boris-johnson-is-a-joke-2017-8">Trump officials don't want to work with Boris Johnson 'because they think he's a joke'</a> <a href="http://archive.is/SQjQY">(archive)</a> 
+<br>
 
 <br>
 ANDREA LEADSOM
