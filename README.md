@@ -18,6 +18,8 @@ PRIVACY
 <br>
 <a href="http://www.theregister.co.uk/2016/12/06/parallel_construction_lies_in_english_courts/">The UK's Investigatory Powers Act allows the State to tell lies in court</a> <a href="https://archive.is/OwMC7">(archive)</a>
 <br>
+<a href="https://www.thecanary.co/2017/08/30/tories-just-caught-snooping-social-media-horrifying-rate/">The Tories have just been caught snooping on our social media at a horrifying rate</a> <a href="http://web.archive.org/web/20170830171648/https://www.thecanary.co/2017/08/30/tories-just-caught-snooping-social-media-horrifying-rate/">(archive)</a>
+<br>
 
 <br>
 GOOGLE
