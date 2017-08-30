@@ -593,6 +593,8 @@ FIRE
 <br>
 <a href="http://www.independent.co.uk/news/business/news/faulty-white-goods-government-inaction-londonfire-brigade-grenfell-tower-fridges-freezers-flammable-a7905011.html?amp">Government inaction is putting people at risk from faulty white goods, warns fire brigade</a> <a href="https://web.archive.org/web/20170821154056/http://www.independent.co.uk/news/business/news/faulty-white-goods-government-inaction-londonfire-brigade-grenfell-tower-fridges-freezers-flammable-a7905011.html?amp">(archive)</a>
 <br>
+<a href="https://amp.theguardian.com/uk-news/2017/aug/29/englands-fire-services-suffer-25-cut-to-safety-officers-numbers">England's fire services suffer 25% cut to safety officers numbers</a> <a href="http://archive.is/9jZlN">(archive)</a>
+<br>
 
 <br>
 MORE ON GRENFELL 
