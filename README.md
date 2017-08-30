@@ -1111,6 +1111,8 @@ NHS
 <br>
 <a href="http://www.huffingtonpost.co.uk/entry/andrea-leadsom-nhs-cuts-horton-hospital-jeremy-hunt-downgrade_uk_599c2490e4b06a788a2bb3ad">Tories Under Fire Over NHS Cuts As Andrea Leadsom Lobbies Jeremy Hunt To Halt Local Hospital Downgrade</a> <a href="http://archive.is/38y0Q">(archive)</a>
 <br>
+<a href="http://www.mirror.co.uk/news/uk-news/tories-blow-unacceptable-21million-consultants-11078341.amp">Tories blow "unacceptable" £21million on consultants to draw up plans for cuts to the NHS</a> <a href="http://web.archive.org/web/20170830135134/http://www.mirror.co.uk/news/uk-news/tories-blow-unacceptable-21million-consultants-11078341.amp">(archive)</a>
+<br>
 
 <br>
 STEPHEN HAWKING
