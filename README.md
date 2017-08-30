@@ -474,6 +474,8 @@ AUSTERITY/WELFARE
 <br>
 <a href="http://www.independent.co.uk/news/uk/home-news/government-disabled-people-un-convention-treatment-breach-a7900176.html?amp">Government accused of breaching UN convention in its treatment of disabled people</a> <a href="https://web.archive.org/web/20170821003603/http://www.independent.co.uk/news/uk/home-news/government-disabled-people-un-convention-treatment-breach-a7900176.html?amp">(archive)</a>
 <br>
+<a href="http://www.mirror.co.uk/news/politics/tory-government-blows-40million-fighting-11077080.amp">Tory government blows £40million fighting to block benefits from sick and disabled people</a> <a href="http://web.archive.org/web/20170830134054/http://www.mirror.co.uk/news/politics/tory-government-blows-40million-fighting-11077080.amp">(archive)</a>
+<br>
 
 <br>
 POLICE
