@@ -561,6 +561,9 @@ DRUG POLICY
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/anti-drug-policy-government-16-billion-theresa-may-usage-levels-illicit-illegal-a7881356.html">Government accused of 'squandering' £1.6bn a year on anti-drug policy</a> <a href="https://web.archive.org/web/20170807214731/http://www.independent.co.uk/news/uk/politics/anti-drug-policy-government-16-billion-theresa-may-usage-levels-illicit-illegal-a7881356.html">(archive)</a>
 <br>
+<a href="https://www.thecanary.co/2017/08/31/flagship-law-brink-collapse-experts-say-tories-blood-hands/">A flagship law is on the brink of collapse as experts say the Tories have ‘blood on their hands’</a> <a href="http://web.archive.org/web/20170831201452/https://www.thecanary.co/2017/08/31/flagship-law-brink-collapse-experts-say-tories-blood-hands/">(archive)</a>
+<br>
+
 
 
 
