@@ -810,6 +810,8 @@ EMPLOYMENT AND WORKERS' RIGHTS
 <br>
 <a href="http://uk.businessinsider.com/the-lie-behind-the-unemployment-numbers-2017-7">More on the 'lie' behind the unemployment numbers</a> <a href="https://archive.is/LtMEV">(archive)</a>
 <br>
+<a href="http://uk.businessinsider.com/household-rate-of-unemployment-3-times-greater-than-government-preferred-statistic-2017-8">More evidence that the true rate of unemployment in the UK is 3 times greater than the government's preferred statistics suggest</a> <a href="http://archive.is/oObeg">(archive)</a>
+<br>
 
 <br>
 PAY CAP
