@@ -1287,6 +1287,8 @@ ECONOMY
 <br>
 <a href="https://www.opendemocracy.net/neweconomics/market-fundamentalism-left-britain-economic-relegation-zone-time-rethink/">Market fundamentalism has left Britain in the economic relegation zone – it’s time for a rethink</a> <a href="http://archive.is/ragii">(archive)</a>
 <br>
+<a href="https://www.theguardian.com/society/2014/nov/24/record-numbers-working-families-poverty-joseph-rowntree-foundation">Record numbers of working families in poverty due to low-paid jobs</a> <a href="http://archive.is/L5J0C">(archive)</a>
+<br>
 
 <br>
 ISRAEL
