@@ -273,6 +273,8 @@ WAR
 <br>
 <a href="https://www.thecanary.co/2017/08/23/theres-massive-arms-fair-coming-london-people-want-make-sure-notice-image/">There’s a massive arms fair coming to London. And these people want to make sure you notice.</a> <a href="http://web.archive.org/web/20170824005958/https://www.thecanary.co/2017/08/23/theres-massive-arms-fair-coming-london-people-want-make-sure-notice-image/">(archive)</a>
 <br>
+<a href="https://opendemocracy.net/uk/caroline-lucas/government-must-come-clean-about-its-secret-wars">The government must come clean about its secret wars</a> <a href="http://archive.is/kL4sL">(archive)</a>
+<br>
 
 <br>
 SAUDI ARABIA
