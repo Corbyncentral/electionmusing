@@ -482,6 +482,12 @@ AUSTERITY/WELFARE
 <br>
 
 <br>
+PRIVATISATION RUSE
+<br>
+<a href="http://www.telegraph.co.uk/news/politics/10442231/Atos-G4S-paid-no-corporation-tax-last-year-despite-carrying-out-2billion-of-taxpayer-funded-work.html">Atos, G4S paid no corporation tax last year despite carrying out £2billion of taxpayer-funded work</a> <a href="http://archive.is/pGWbU">(archive)</a>
+<br>
+
+<br>
 POLICE
 <br>
 <a href="http://www.dailymail.co.uk/news/article-3089363/This-crying-wolf-stop-Furious-Theresa-attacks-police-officers-scaremongering-budget-cuts.html">'This crying wolf HAS to stop': Furious Home Secretary Theresa May attacks police officers for 'scaremongering' over budget cuts.</a> <a href="https://archive.is/Wvc63">(archive)</a>
