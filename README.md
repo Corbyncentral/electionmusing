@@ -768,7 +768,8 @@ HOME OFFICE
 <br>
 <a href="http://www.politics.co.uk/blogs/2017/08/25/the-home-office-not-fit-for-purpose">Week in Review: The Home Office isn't fit for purpose</a> <a href="http://archive.is/eO8S8">(archive)</a>
 <br>
-
+<a href="https://amp.theguardian.com/uk-news/2017/sep/01/home-office-makes-800-profit-on-some-visa-applications">Home Office makes 800% profit on some visa applications</a> <a href="http://archive.is/KQgcf">(archive)</a>
+<br>
 
 <br>
 RIGHT WING
