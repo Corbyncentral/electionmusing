@@ -778,6 +778,8 @@ HOME OFFICE
 <br>
 <a href="https://amp.theguardian.com/uk-news/2017/sep/01/home-office-makes-800-profit-on-some-visa-applications">Home Office makes 800% profit on some visa applications</a> <a href="http://archive.is/KQgcf">(archive)</a>
 <br>
+<a href="http://www.mirror.co.uk/news/politics/passport-rip-mp-slams-55p-11102022.amp">Passport rip off as MP slams 55p-a-minute hotline to arrange delivery from Government-approved firm</a> <a href="http://web.archive.org/web/20170902211349/http://www.mirror.co.uk/news/politics/passport-rip-mp-slams-55p-11102022.amp">(archive)</a>
+<br>
 
 <br>
 RIGHT WING
