@@ -528,6 +528,8 @@ PRISONS
 <br>
 <a href="http://www.mirror.co.uk/news/uk-news/voice-mirror-prisons-been-turned-11068085.amp">Prisons have been turned into a nightmare place to work by Tory austerity</a> <a href="http://web.archive.org/web/20170827214706/http://www.mirror.co.uk/news/uk-news/voice-mirror-prisons-been-turned-11068085.amp">(archive)</a>
 <br>
+<a href="https://amp.theguardian.com/society/2017/sep/01/young-black-people-jailed-moj-report-david-lammy">Young black people nine times more likely to be jailed than young white people – report</a> <a href="http://archive.is/Rc8LH">(archive)</a>
+<br>
 
 
 <br>
