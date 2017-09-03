@@ -1243,6 +1243,8 @@ BREXIT
 <br>
 <a href="https://www.bloomberg.com/news/articles/2017-08-21/u-k-post-brexit-trade-stance-puzzling-ireland-s-varadkar-says">U.K.'s Brexit Trade Stance Leaves Irish PM Confused and Puzzled</a> <a href="http://archive.is/kCWhm">(archive)</a>
 <br>
+<a href="https://amp.theguardian.com/commentisfree/2017/sep/03/employment-rights-risk-brexit-eu-withdrawal-bill">Your employment rights could be put at risk through Brexit. Here’s why</a> <a href="http://archive.is/fLITe">(archive)</a>
+<br>
 
 <br>
 PANAMA PAPERS AND TAXATION
