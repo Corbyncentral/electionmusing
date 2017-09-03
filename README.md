@@ -807,7 +807,7 @@ EMPLOYMENT AND WORKERS' RIGHTS
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/dwp-fit-to-work-assessments-cost-more-than-they-save-report-reveals-a6801636.html">DWP fit-to-work assessments cost more money than they save, report reveals</a> <a href="https://web.archive.org/web/20170628194319/http://www.independent.co.uk/news/uk/politics/dwp-fit-to-work-assessments-cost-more-than-they-save-report-reveals-a6801636.html">(archive)</a>
 <br>
-<a href="http://www.scriptonitedaily.com/2013/08/06/1-million-jobless-left-out-of-uk-govt-unemployment-figures/">Here is How the UK Govt Hid 1 million Jobless From Official Unemployment Figures</a> <a href="https://archive.is/2lLv9">(archive)</a>
+<a href="http://www.scriptonitedaily.com/2013/08/06/1-million-jobless-left-out-of-uk-govt-unemployment-figures/">Here is How the UK Govt Hid 1 million Jobless From Official Unemployment Figures</a> Please use:<a href="https://archive.is/2lLv9">(archive)</a>
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/dwp-benefit-cuts-jobcentre-closures-local-travel-costs-further-pcs-a7547351.html">Unemployed will be forced to travel further to sign on as DWP plans to close 78 local Jobcentres</a> <a href="https://web.archive.org/web/20170628195023/http://www.independent.co.uk/news/uk/politics/dwp-benefit-cuts-jobcentre-closures-local-travel-costs-further-pcs-a7547351.html">(archive)</a>
 <br>
@@ -826,6 +826,8 @@ EMPLOYMENT AND WORKERS' RIGHTS
 <a href="http://uk.businessinsider.com/the-lie-behind-the-unemployment-numbers-2017-7">More on the 'lie' behind the unemployment numbers</a> <a href="https://archive.is/LtMEV">(archive)</a>
 <br>
 <a href="http://uk.businessinsider.com/household-rate-of-unemployment-3-times-greater-than-government-preferred-statistic-2017-8">More evidence that the true rate of unemployment in the UK is 3 times greater than the government's preferred statistics suggest</a> <a href="http://archive.is/oObeg">(archive)</a>
+<br>
+<a href="https://amp.theguardian.com/sustainable-business/2015/apr/20/taxpayers-spend-11bn-to-top-up-low-wages-paid-by-uk-companies">Taxpayers spend £11bn to top up low wages paid by UK companies</a> <a href="http://archive.is/SGE6w">(archive)</a>
 <br>
 
 <br>
