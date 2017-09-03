@@ -662,6 +662,8 @@ HOUSING
 <br>
 <a href="https://amp.theguardian.com/money/2017/jul/31/owners-ex-local-authority-homes-bills-thousands">Owners of ex-local authority homes face horror of bills running into thousands</a> <a href="https://archive.is/khLwA">(archive)</a>
 <br>
+<a href="http://www.independent.co.uk/news/uk/home-news/rogue-landlords-12-billion-25-rentals-property-public-money-housing-benefit-lease-flats-houses-a7926421.html?amp">Rogue private landlords given £2.5bn a year of public money, new analysis reveals</a> <a href="http://web.archive.org/web/20170903121144/http://www.independent.co.uk/news/uk/home-news/rogue-landlords-12-billion-25-rentals-property-public-money-housing-benefit-lease-flats-houses-a7926421.html?amp">(archive)</a>
+<br>
 
 <br>
 HOMELESSNESS
