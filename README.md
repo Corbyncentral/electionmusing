@@ -42,6 +42,8 @@ AUSTERITY RUSE
 <br>
 <a href="https://www.thecanary.co/2017/07/23/media-kept-quiet-mays-grubby-golden-handshakes-20-tory-ministers-naming/">The media has kept quiet about May’s grubby ‘golden handshakes’ to 20 Tory ministers. So we’re naming them</a> <a href="https://web.archive.org/web/20170723203359/https://www.thecanary.co/2017/07/23/media-kept-quiet-mays-grubby-golden-handshakes-20-tory-ministers-naming/">(archive)</a>
 <br>
+<a href="http://www.mirror.co.uk/news/politics/fury-tory-ministers-spend-400000-11108218.amp">Fury as Tory ministers spend £400,000 getting chauffeurs... for their briefcases</a> <a href="http://web.archive.org/web/20170904134943/http://www.mirror.co.uk/news/politics/fury-tory-ministers-spend-400000-11108218.amp">(archive)</a>
+<br>
 
 
 <br>
