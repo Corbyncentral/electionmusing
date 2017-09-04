@@ -1149,6 +1149,8 @@ NHS
 <br>
 <a href="https://amp.theguardian.com/society/2017/aug/31/nhs-trusts-england-overspend-3bn-higher-reported-study-claims">NHS trusts' overspend is £3bn higher than reported, study claims</a> <a href="http://archive.is/vpCjO">(archive)</a>
 <br>
+<a href="https://amp.theguardian.com/society/2017/sep/02/nhs-warns-of-dangerous-beds-shortage-this-winter">NHS warns of ‘dangerous’ beds shortage this winter</a> <a href="http://archive.is/tJSoq">(archive)</a>
+<br>
 
 <br>
 STEPHEN HAWKING
