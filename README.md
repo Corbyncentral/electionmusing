@@ -989,6 +989,8 @@ NASTY PARTY
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/tories-gassing-chavs-whatsapp-messages-group-chat-activate-members-leaked-a7921086.html?amp">Young Tory activists caught discussing 'gassing chavs' and 'shooting peasants' in leaked WhatsApp group</a> <a href="http://web.archive.org/web/20170830202215/http://www.independent.co.uk/news/uk/politics/tories-gassing-chavs-whatsapp-messages-group-chat-activate-members-leaked-a7921086.html?amp">(archive)</a>
 <br>
+<a href="https://skwawkbox.org/2017/09/05/literally-homophobia-young-conservatives-in-new-whatsapp-scandal/amp/">"Literally homophobia” – Young Conservatives in new Whatsapp scandal</a> <a href="http://archive.is/zcOln">(archive)</a>
+<br>
 
 <br>
 TOLERANCE OF HATRED AND BIGOTRY
