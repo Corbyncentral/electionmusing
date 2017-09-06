@@ -255,6 +255,8 @@ ARMED FORCES
 <br>
 <a href="https://www.thecanary.co/2017/08/21/top-law-firm-just-revealed-damning-truth-tory-made-crisis-military/">A top law firm has just revealed the damning truth about the Tory-made crisis in our military</a> <a href="http://web.archive.org/web/20170822142638/https://www.thecanary.co/2017/08/21/top-law-firm-just-revealed-damning-truth-tory-made-crisis-military/">(archive)</a>
 <br>
+<a href="http://www.independent.co.uk/news/uk/home-news/national-action-neo-nazi-soldiers-arrests-far-right-terror-charges-plot-extremism-inquiry-calls-a7933356.html?amp">'Neo-Nazi’ arrests: Calls for extremism inquiry after British soldiers are detained on far-right terror charges</a> <a href="http://web.archive.org/web/20170906191525/http://www.independent.co.uk/news/uk/home-news/national-action-neo-nazi-soldiers-arrests-far-right-terror-charges-plot-extremism-inquiry-calls-a7933356.html?amp">(archive)</a>
+<br>
 
 
 <br>
