@@ -1448,6 +1448,8 @@ BORIS JOHNSON
 <br>
 <a href="http://uk.businessinsider.com/donald-trump-administration-think-boris-johnson-is-a-joke-2017-8">Trump officials don't want to work with Boris Johnson 'because they think he's a joke'</a> <a href="http://archive.is/SQjQY">(archive)</a> 
 <br>
+<a href="https://www.thecanary.co/2017/09/05/tory-peer-shames-boris-johnson-meek-response-actual-fcking-atrocity/">A Tory peer shames Boris Johnson for his meek response to an actual f*cking atrocity</a> <a href="http://web.archive.org/web/20170906175837/https://www.thecanary.co/2017/09/05/tory-peer-shames-boris-johnson-meek-response-actual-fcking-atrocity/">(archive)</a>
+<br>
 
 <br>
 ANDREA LEADSOM
