@@ -1267,6 +1267,8 @@ BREXIT
 <br>
 <a href="https://www.politicshome.com/news/europe/eu-policy-agenda/brexit/news/88759/furious-lords-accuse-ministers-unprecedented-power">Furious Lords accuse ministers of 'unprecedented' power grab over Brexit bill</a> <a href="http://archive.is/p7Od4">(archive)</a>
 <br>
+<a href="http://www.huffingtonpost.co.uk/entry/keir-starmer-brexit-bill_uk_59b1435ce4b0b5e531041cdc">Keir Starmer Tears Apart David Davis’s Brexit Bill, Calls It ‘Extraordinary Power Grab’</a> <a href="http://archive.is/dP3ka">(archive)</a>
+<br>
 
 <br>
 PANAMA PAPERS AND TAXATION
