@@ -1263,6 +1263,8 @@ BREXIT
 <br>
 <a href="https://amp.theguardian.com/commentisfree/2017/sep/03/employment-rights-risk-brexit-eu-withdrawal-bill">Your employment rights could be put at risk through Brexit. Here’s why</a> <a href="http://archive.is/fLITe">(archive)</a>
 <br>
+<a href="https://www.politicshome.com/news/europe/eu-policy-agenda/brexit/news/88759/furious-lords-accuse-ministers-unprecedented-power">Furious Lords accuse ministers of 'unprecedented' power grab over Brexit bill</a> <a href="http://archive.is/p7Od4">(archive)</a>
+<br>
 
 <br>
 PANAMA PAPERS AND TAXATION
