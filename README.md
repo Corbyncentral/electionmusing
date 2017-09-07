@@ -720,6 +720,8 @@ ENVIRONMENT
 <br>
 <a href="https://www.thecanary.co/2017/08/29/tories-court-time-storm-thats-brewing-quiet-lancashire-village/">The Tories are in court again, this time over a storm that’s brewing in a quiet Lancashire village</a> <a href="http://web.archive.org/web/20170830124315/https://www.thecanary.co/2017/08/29/tories-court-time-storm-thats-brewing-quiet-lancashire-village/">(archive)</a>
 <br>
+<a href="https://www.thecanary.co/2017/09/07/tory-government-quietly-uploads-document-website-disgraceful-cut-making-years/">The Tory government quietly uploads a document to its website about a ‘disgraceful’ cut it’s been making for years</a> <a href="http://web.archive.org/web/20170907125441/https://www.thecanary.co/2017/09/07/tory-government-quietly-uploads-document-website-disgraceful-cut-making-years/">(archive)</a>
+<br>
 
 <br>
 IVORY TRADE
