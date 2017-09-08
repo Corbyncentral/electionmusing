@@ -282,6 +282,14 @@ WAR
 <a href="https://opendemocracy.net/uk/caroline-lucas/government-must-come-clean-about-its-secret-wars">The government must come clean about its secret wars</a> <a href="http://archive.is/kL4sL">(archive)</a>
 <br>
 
+
+<br>
+AID
+<br>
+<a href="http://m.huffpost.com/uk/entry/uk_59b2e029e4b0354e4411db4e/amp">Hurricane Irma: Boris Johnson And Priti Patel Blasted For UK Response</a> <a href="http://archive.is/CvpfS">(archive)</a>
+<br>
+
+
 <br>
 SAUDI ARABIA
 <br>
