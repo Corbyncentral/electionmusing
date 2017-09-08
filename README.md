@@ -320,6 +320,12 @@ IRA
 <a href="http://www.telegraph.co.uk/news/uknews/terrorism-in-the-uk/11062418/Thatcher-granted-secret-pardon-to-IRA-terrorist.html">Thatcher granted secret pardon to IRA terrorist</a> <a href="https://web.archive.org/web/20170628020232/http://www.telegraph.co.uk/news/uknews/terrorism-in-the-uk/11062418/Thatcher-granted-secret-pardon-to-IRA-terrorist.html">(archive)</a>
 <br>
 
+<br>
+BURMA
+<br>
+<a href="http://www.independent.co.uk/news/uk/politics/burma-rohingya-crisis-myanmar-army-uk-training-boris-johnson-urged-end-a7937361.html">MPs urge Boris Johnson to suspend UK training of Burma's military amid ethnic cleansing claims</a> <a href="http://web.archive.org/web/20170908224342/http://www.independent.co.uk/news/uk/politics/burma-rohingya-crisis-myanmar-army-uk-training-boris-johnson-urged-end-a7937361.html">(archive)</a>
+<br>
+
 
 <br>
 DUP
