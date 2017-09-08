@@ -1269,6 +1269,8 @@ BREXIT
 <br>
 <a href="http://www.huffingtonpost.co.uk/entry/keir-starmer-brexit-bill_uk_59b1435ce4b0b5e531041cdc">Keir Starmer Tears Apart David Davis’s Brexit Bill, Calls It ‘Extraordinary Power Grab’</a> <a href="http://archive.is/dP3ka">(archive)</a>
 <br>
+<a href="https://www.opendemocracy.net/uk/brexitinc/james-cusick-adam-ramsay-crina-boros/revealed-tory-mps-using-taxpayers-cash-to-fund-sec">Revealed: The Tory MPs using taxpayers’ cash to fund a secretive hard-Brexit group</a> <a href="http://archive.is/yhTCN">(archive)</a>
+<br>
 
 <br>
 PANAMA PAPERS AND TAXATION
