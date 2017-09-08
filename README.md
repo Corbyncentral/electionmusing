@@ -358,6 +358,8 @@ DUP
 <br>
 <a href="https://stv.tv/amp/1393899-devolved-governments-formally-object-to-tories-dup-deal/">Devolved governments formally object to Tories' DUP deal</a> <a href="https://archive.is/qiiMi">(archive)</a>
 <br>
+<a href="https://www.theguardian.com/global/2017/sep/08/court-to-hear-challenge-to-theresa-may-1bn-deal-with-dup">Court to hear challenge to Theresa May's £1bn deal with DUP</a> <a href="http://archive.is/64JzA">(archive)</a>
+<br>
 
 
 <br>
