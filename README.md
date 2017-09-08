@@ -106,6 +106,8 @@ SCOTLAND
 <br>
 <a href="http://www.dailyrecord.co.uk/news/politics/ruth-davidsons-failure-offensive-tweet-11029455.amp">Ruth Davidson's failure on offensive tweet councillors is a total disgrace</a> <a href="http://archive.is/qcFMj">(archive)</a>
 <br>
+<a href="http://www.thenational.scot/news/15522675._Hang_your_head_in_shame___Nicola_Sturgeon_blasts_Ruth_Davidson_for_Brexit_hypocrisy/">'Hang your head in shame': Nicola Sturgeon blasts Ruth Davidson for Brexit hypocrisy</a> <a href="http://archive.is/eeSQO">(archive)</a>
+<br>
 
 <br>
 NORTH SOUTH DIVIDE
