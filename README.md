@@ -1479,6 +1479,8 @@ PHILIP HAMMOND
 <br>
 <a href="http://evolvepolitics.com/philip-nurses-overpaid-hammond-rakes-10000-month-rent-whilst-living-rent-free-off-taxpayer/">Philip ‘nurses are overpaid’ Hammond rakes in £10k a month in rent whilst living rent-free off the taxpayer</a> <a href="https://archive.is/iI9xu">(archive)</a>
 <br>
+<a href="http://m.huffpost.com/uk/entry/uk_59b15e62e4b0dfaafcf5fdc5/amp">Labour Accuse Philip Hammond Of 'Boasting' About His Wealth To Tory MPs</a> <a href="http://archive.is/oSa3s">(archive)</a>
+<br>
 
 <br>
 LIAM FOX
