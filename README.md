@@ -419,6 +419,8 @@ THERESA MAY
 <br>
 <a href="http://www.independent.co.uk/news/brexit-immigration-theresa-may-report-liberal-democrats-accuse-pm-manipulation-a7334466.html?amp">Theresa May accused of manipulating crucial immigration report before Brexit vote</a> <a href="https://web.archive.org/web/20170728163917/http://www.independent.co.uk/news/brexit-immigration-theresa-may-report-liberal-democrats-accuse-pm-manipulation-a7334466.html?amp">(archive)</a>
 <br>
+<a href="http://www.independent.co.uk/news/uk/politics/theresa-may-brexit-power-grab-plan-election-lost-majority-parliament-rig-a7937081.html">Theresa May secretly hatched plan to ‘rig’ parliament straight after losing majority in election</a> <a href="http://web.archive.org/web/20170909131857/http://www.independent.co.uk/news/uk/politics/theresa-may-brexit-power-grab-plan-election-lost-majority-parliament-rig-a7937081.html">(archive)</a>
+<br>
 
 
 <br>
