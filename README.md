@@ -94,6 +94,9 @@ NEGATIVE TACTICS
 <br>
 <a href="http://www.mirror.co.uk/news/politics/police-announce-significant-investigation-tory-11052322.amp">Police announce 'significant' investigation into Tory election call centre</a> <a href="http://web.archive.org/web/20170825135702/http://www.mirror.co.uk/news/politics/police-announce-significant-investigation-tory-11052322.amp">(archive)</a>
 <br>
+<a href="http://www.huffingtonpost.co.uk/entry/alan-duncan-who-criticised-caroline-lucas-over-hurricane-climate-change-comments-has-links-to-oil-industry_uk_59b261aee4b0354e4410f05b?">Alan Duncan, Who Criticised Caroline Lucas Over Hurricane Climate Change Comments, Has Links To Oil Industry</a> <a href="http://archive.is/Wgbct">(archive)</a>
+<br>
+
 
 <br>
 SCOTLAND
