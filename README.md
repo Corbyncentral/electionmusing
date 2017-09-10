@@ -286,6 +286,8 @@ WAR
 <br>
 <a href="https://opendemocracy.net/uk/caroline-lucas/government-must-come-clean-about-its-secret-wars">The government must come clean about its secret wars</a> <a href="http://archive.is/kL4sL">(archive)</a>
 <br>
+<a href="https://amp.theguardian.com/world/2017/sep/09/arms-sales-repressive-regimes-saudi-arabia">British arms sales to repressive regimes soar to £5bn since election</a> <a href="http://web.archive.org/web/20170910130232/https://amp.theguardian.com/world/2017/sep/09/arms-sales-repressive-regimes-saudi-arabia">(archive)</a>
+<br>
 
 
 <br>
