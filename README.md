@@ -16,7 +16,7 @@ RUSSIA
 
 
 <br>
-PRIVACY
+PRIVACY AND ACTIVISM
 <br>
 <a href="https://www.thecanary.co/2017/08/04/tory-governments-latest-record-breaking-feat-reveals-horrific-path-uk-now-taking/">The Tory government’s latest record-breaking feat reveals the horrific path the UK is now taking</a> <a href="https://web.archive.org/web/20170804174529/https://www.thecanary.co/2017/08/04/tory-governments-latest-record-breaking-feat-reveals-horrific-path-uk-now-taking/">(archive)</a>
 <br>
@@ -25,6 +25,8 @@ PRIVACY
 <a href="http://www.theregister.co.uk/2016/12/06/parallel_construction_lies_in_english_courts/">The UK's Investigatory Powers Act allows the State to tell lies in court</a> <a href="https://archive.is/OwMC7">(archive)</a>
 <br>
 <a href="https://www.thecanary.co/2017/08/30/tories-just-caught-snooping-social-media-horrifying-rate/">The Tories have just been caught snooping on our social media at a horrifying rate</a> <a href="http://web.archive.org/web/20170830171648/https://www.thecanary.co/2017/08/30/tories-just-caught-snooping-social-media-horrifying-rate/">(archive)</a>
+<br>
+<a href="https://www.thecanary.co/2017/09/10/expansion-of-this-state-programme-could-be-the-biggest-threat-to-our-democracy-yet-opinion/">Expansion of this UK government programme could be the biggest threat to our democracy yet</a> <a href="http://web.archive.org/web/20170910170441/https://www.thecanary.co/2017/09/10/expansion-of-this-state-programme-could-be-the-biggest-threat-to-our-democracy-yet-opinion/">(archive)</a>
 <br>
 
 <br>
