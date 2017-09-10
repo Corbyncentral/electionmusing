@@ -1,6 +1,12 @@
 # Political Links
 
 <br>
+LAURA PIDCOCK
+<br>
+<a href="https://www.vice.com/amp/en_uk/article/5997yq/the-real-reason-tories-are-so-furious-with-labours-laura-pidcock">The Real Reason Tories Are So Furious with Labour's Laura Pidcock</a> <a href="http://web.archive.org/web/20170910142329/https://www.vice.com/amp/en_uk/article/5997yq/the-real-reason-tories-are-so-furious-with-labours-laura-pidcock">(archive)</a>
+<br>
+
+<br>
 RUSSIA
 <br>
 <a href="https://www.theguardian.com/world/2016/jul/11/what-russia-thinks-of-brexit-and-how-it-could-gain-from-a-fractured-europe">What Russia thinks of Brexit – and how it could gain from a fractured Europe</a> <a href="http://archive.is/egsrh">(archive)</a>
