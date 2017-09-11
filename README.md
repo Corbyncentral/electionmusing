@@ -759,6 +759,8 @@ ENVIRONMENT
 <br>
 <a href="https://www.thecanary.co/2017/09/07/tory-government-quietly-uploads-document-website-disgraceful-cut-making-years/">The Tory government quietly uploads a document to its website about a ‘disgraceful’ cut it’s been making for years</a> <a href="http://web.archive.org/web/20170907125441/https://www.thecanary.co/2017/09/07/tory-government-quietly-uploads-document-website-disgraceful-cut-making-years/">(archive)</a>
 <br>
+<a href="https://www.thecanary.co/2017/09/11/the-government-has-just-admitted-the-badger-cull-isnt-working-but-its-going-to-kill-another-30000-of-them-anyway/">The government has just admitted the badger cull isn’t working. But it’s going to kill another 30,000 of them anyway</a> <a href="http://web.archive.org/web/20170911193636/https://www.thecanary.co/2017/09/11/the-government-has-just-admitted-the-badger-cull-isnt-working-but-its-going-to-kill-another-30000-of-them-anyway/">(archive)</a>
+<br>
 
 <br>
 IVORY TRADE
