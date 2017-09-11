@@ -322,6 +322,8 @@ SAUDI ARABIA
 <br>
 <a href="http://www.bbc.co.uk/news/business-40198447">Aramco: London listing inappropriate, says Royal London</a> <a href="https://archive.is/RBg1b">(archive)</a>
 <br>
+<a href="http://www.independent.co.uk/news/uk/politics/saudi-arabia-has-paid-for-nearly-a-dozen-tory-mps-to-fly-out-and-visit-it-so-far-this-year-a6993271.html">Saudi Arabia has paid for nearly a dozen Tory MPs to fly out and visit on 'fact-finding missions' this year</a> <a href="http://web.archive.org/web/20170911131251/http://www.independent.co.uk/news/uk/politics/saudi-arabia-has-paid-for-nearly-a-dozen-tory-mps-to-fly-out-and-visit-it-so-far-this-year-a6993271.html">(archive)</a>
+<br>
 
 <br>
 IRA
