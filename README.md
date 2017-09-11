@@ -373,6 +373,8 @@ DUP
 <br>
 <a href="https://www.theguardian.com/global/2017/sep/08/court-to-hear-challenge-to-theresa-may-1bn-deal-with-dup">Court to hear challenge to Theresa May's £1bn deal with DUP</a> <a href="http://archive.is/64JzA">(archive)</a>
 <br>
+<a href="https://amp.theguardian.com/politics/2017/sep/11/tory-dup-1bn-payment-needs-parliaments-approval-after-gina-miller-challenge">Tory-DUP £1bn payment needs parliament's approval after Gina Miller challenge</a> <a href="http://web.archive.org/web/20170911112854/https://amp.theguardian.com/politics/2017/sep/11/tory-dup-1bn-payment-needs-parliaments-approval-after-gina-miller-challenge">(archive)</a>
+<br>
 
 
 <br>
