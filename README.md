@@ -920,6 +920,8 @@ EDUCATION
 <br>
 <a href="https://skwawkbox.org/2017/08/22/tories-boast-re-disadvantaged-uni-students-and-of-course-they-lie/amp/">Tories boast re disadvantaged uni students. And of course they lie</a> <a href="http://archive.is/LOJSY">(archive)</a>
 <br>
+<a href="http://www.independent.co.uk/news/uk/politics/theresa-may-u-turn-private-school-tax-break-pledge-pmqs-conservatives-a7944731.html?amp">Theresa May quietly drops manifesto promise to strip tax breaks from private schools</a> <a href="http://web.archive.org/web/20170913145754/http://www.independent.co.uk/news/uk/politics/theresa-may-u-turn-private-school-tax-break-pledge-pmqs-conservatives-a7944731.html?amp">(archive)</a>
+<br>
 
 <br>
 RAILWAYS
