@@ -727,6 +727,8 @@ HOMELESSNESS
 <br>
 <a href="https://www.thecanary.co/2017/08/17/thousands-people-driven-homelessness-thanks-tory-rule/">Thousands of people are being driven into homelessness thanks to Tory rule</a> <a href="https://web.archive.org/web/20170817141429/https://www.thecanary.co/2017/08/17/thousands-people-driven-homelessness-thanks-tory-rule/">(archive)</a>
 <br>
+<a href="http://www.mirror.co.uk/news/politics/child-homelessness-risen-73-per-11159436.amp">Child homelessness has soared and number of rough sleepers doubled since Tories came to power</a> <a href="http://web.archive.org/web/20170913134617/http://www.mirror.co.uk/news/politics/child-homelessness-risen-73-per-11159436.amp">(archive)</a>
+<br>
 
 
 
