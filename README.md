@@ -1310,6 +1310,8 @@ BREXIT
 <br>
 <a href="https://www.opendemocracy.net/uk/brexitinc/james-cusick-adam-ramsay-crina-boros/revealed-tory-mps-using-taxpayers-cash-to-fund-sec">Revealed: The Tory MPs using taxpayers’ cash to fund a secretive hard-Brexit group</a> <a href="http://archive.is/yhTCN">(archive)</a>
 <br>
+<a href="http://www.politics.co.uk/blogs/2017/09/12/this-is-the-just-the-start-of-the-brexit-attack-on-democracy">This is the just the start of the Brexit attack on democracy</a> <a href="http://archive.is/NMoDj">(archive)</a>
+<br>
 
 <br>
 PANAMA PAPERS AND TAXATION
