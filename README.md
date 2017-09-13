@@ -157,6 +157,8 @@ BBC
 <br>
 <a href="https://skwawkbox.org/2017/08/28/bbc-silence-on-toryelectionfraud2-kills-even-pretence-of-impartiality/amp/">BBC silence on #ToryElectionFraud2 kills even pretence of impartiality</a> <a href="http://archive.is/8WMA8">(archive)</a>
 <br>
+<a href="https://www.thecanary.co/2016/07/29/damning-evidence-just-came-light-exposes-bbcs-role-labour-coup/">Damning evidence just came to light that exposes the BBC’s role in the Labour coup</a> <a href="http://web.archive.org/web/20170913233724/https://www.thecanary.co/2016/07/29/damning-evidence-just-came-light-exposes-bbcs-role-labour-coup/">(archive)</a>
+<br>
 
 <br>
 JEREMY CORBYN
