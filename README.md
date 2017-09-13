@@ -888,6 +888,8 @@ EMPLOYMENT AND WORKERS' RIGHTS
 <br>
 <a href="https://amp.theguardian.com/sustainable-business/2015/apr/20/taxpayers-spend-11bn-to-top-up-low-wages-paid-by-uk-companies">Taxpayers spend £11bn to top up low wages paid by UK companies</a> <a href="http://archive.is/SGE6w">(archive)</a>
 <br>
+<a href="http://voxpoliticalonline.com/2017/09/13/this-is-theresa-mays-excuse-for-saying-unemployment-is-at-an-all-time-low/">This is Theresa May's excuse for saying unemployment is at an all time low</a> <a href="http://archive.is/U7asW">(archive)</a>
+<br>
 
 <br>
 PAY CAP
