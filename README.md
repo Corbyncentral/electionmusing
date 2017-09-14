@@ -693,6 +693,8 @@ MORE ON GRENFELL
 <br>
 <a href="https://www.theguardian.com/uk-news/2017/sep/04/grenfell-tower-fire-lawyers-warn-theresa-may-she-may-be-breaching-inquiry-laws">Grenfell Tower fire: lawyers warn Theresa May she may be breaching inquiry laws</a> <a href="http://archive.is/3RlQU">(archive)</a>
 <br>
+<a href="http://www.independent.co.uk/voices/grenfell-tower-fire-inquiry-government-failure-broken-promises-sprinklers-social-housing-a7946086.html">Six times this Tory Government failed the Grenfell Tower residents</a> <a href="http://web.archive.org/web/20170914120435/http://www.independent.co.uk/voices/grenfell-tower-fire-inquiry-government-failure-broken-promises-sprinklers-social-housing-a7946086.html">(archive)</a>
+<br>
 
 <br>
 HOUSING
