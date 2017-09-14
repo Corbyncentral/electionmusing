@@ -695,6 +695,8 @@ MORE ON GRENFELL
 <br>
 <a href="http://www.independent.co.uk/voices/grenfell-tower-fire-inquiry-government-failure-broken-promises-sprinklers-social-housing-a7946086.html">Six times this Tory Government failed the Grenfell Tower residents</a> <a href="http://web.archive.org/web/20170914120435/http://www.independent.co.uk/voices/grenfell-tower-fire-inquiry-government-failure-broken-promises-sprinklers-social-housing-a7946086.html">(archive)</a>
 <br>
+<a href="https://skwawkbox.org/2017/09/14/leaked-tragic-letter-govt-knew-grenfell-waiting-to-happen-will-inquiry-ignore/amp/">Leaked, tragic letter: govt knew #Grenfell waiting to happen. Will inquiry ignore?</a> <a href="http://archive.is/vLYZw">(archive)</a>
+<br>
 
 <br>
 HOUSING
