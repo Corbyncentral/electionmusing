@@ -104,6 +104,8 @@ NEGATIVE TACTICS
 <br>
 <a href="http://www.huffingtonpost.co.uk/entry/alan-duncan-who-criticised-caroline-lucas-over-hurricane-climate-change-comments-has-links-to-oil-industry_uk_59b261aee4b0354e4410f05b?">Alan Duncan, Who Criticised Caroline Lucas Over Hurricane Climate Change Comments, Has Links To Oil Industry</a> <a href="http://archive.is/Wgbct">(archive)</a>
 <br>
+<a href="http://evolvepolitics.com/the-tories-are-wasting-your-tax-money-on-army-psyops-to-create-spread-pro-tory-memes-and-propaganda/">The Tories are wasting YOUR tax money on Army ‘PsyOps’ to create & spread pro-Tory memes and propaganda</a> <a href="http://archive.is/LBoeY">(archive)</a>
+<br>
 
 
 <br>
