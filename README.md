@@ -1678,6 +1678,8 @@ JAMES CLEVERLY
 <br>
 <a href="http://www.bbc.co.uk/news/uk-england-london-11019105">Tory in 'abusive' Twitter insult to MP Simon Hughes</a> <a href="http://archive.is/mfyXU">(archive)</a>
 <br>
+<a href="http://evolvepolitics.com/a-tory-mp-just-said-people-who-want-to-give-nurses-a-pay-rise-are-as-bad-as-stalin/">A Tory MP just said people who want to give nurses a pay rise are as bad as Stalin</a> <a href="http://archive.is/mR3VL">(archive)</a>
+<br>
 
 <br>
 NIGEL FARAGE
