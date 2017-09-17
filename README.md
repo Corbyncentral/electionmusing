@@ -1110,6 +1110,12 @@ CONSERVATIVES AND THE PRESS
 <br>
 
 <br>
+SOCIAL MEDIA OOPS
+<br>
+<a href="http://evolvepolitics.com/the-tories-just-launched-an-utterly-incredible-tirade-against-themselves-for-being-too-socialist/">The Tories just launched an utterly incredible tirade against themselves for being too socialist</a> <a href="http://archive.is/bwoo8">(archive)</a>
+<br>
+
+<br>
 CORRUPTION ALLEGATIONS
 <br>
 <a href="https://sleazeexpo.wordpress.com/">Voter count model election rigging</a>
