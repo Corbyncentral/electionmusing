@@ -531,6 +531,8 @@ AUSTERITY/WELFARE
 <br>
 <a href="https://politicalscrapbook.net/2017/09/now-tory-mp-claims-foodbanks-are-simply-part-of-modern-living/amp/">NOW TORY MP CLAIMS FOODBANKS ARE SIMPLY “PART OF MODERN LIVING”</a> <a href="http://archive.is/IBnpA">(archive)</a>
 <br>
+<a href="https://evolvepolitics.com/tetraplegic-woman-has-benefits-stopped-and-is-told-to-start-looking-for-work/">Brain-damaged tetraplegic woman has benefits stopped and told to ‘start looking for work’ by DWP</a> <a href="http://archive.is/JMwdU">(archive)</a>
+<br>
 
 <br>
 PRIVATISATION RUSE
