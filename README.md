@@ -1529,6 +1529,8 @@ BORIS JOHNSON
 <br>
 <a href="https://www.thecanary.co/2017/09/05/tory-peer-shames-boris-johnson-meek-response-actual-fcking-atrocity/">A Tory peer shames Boris Johnson for his meek response to an actual f*cking atrocity</a> <a href="http://web.archive.org/web/20170906175837/https://www.thecanary.co/2017/09/05/tory-peer-shames-boris-johnson-meek-response-actual-fcking-atrocity/">(archive)</a>
 <br>
+<a href="http://www.independent.co.uk/news/uk/politics/brexit-boris-johnson-350-million-nhs-eu-latest-nationalist-liar-newspapers-a7952786.html?amp">Brexit: Boris Johnson labelled a ‘nationalist liar’ by European newspapers after reviving £350m claim</a> <a href="http://web.archive.org/web/20170918150943/http://www.independent.co.uk/news/uk/politics/brexit-boris-johnson-350-million-nhs-eu-latest-nationalist-liar-newspapers-a7952786.html?amp">(archive)</a>
+<br>
 
 <br>
 ANDREA LEADSOM
