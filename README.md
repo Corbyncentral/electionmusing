@@ -529,6 +529,8 @@ AUSTERITY/WELFARE
 <br>
 <a href="http://www.mirror.co.uk/news/politics/tory-government-blows-40million-fighting-11077080.amp">Tory government blows £40million fighting to block benefits from sick and disabled people</a> <a href="http://web.archive.org/web/20170830134054/http://www.mirror.co.uk/news/politics/tory-government-blows-40million-fighting-11077080.amp">(archive)</a>
 <br>
+<a href="https://politicalscrapbook.net/2017/09/now-tory-mp-claims-foodbanks-are-simply-part-of-modern-living/amp/">NOW TORY MP CLAIMS FOODBANKS ARE SIMPLY “PART OF MODERN LIVING”</a> <a href="http://archive.is/IBnpA">(archive)</a>
+<br>
 
 <br>
 PRIVATISATION RUSE
