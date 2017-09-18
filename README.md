@@ -729,6 +729,8 @@ HOUSING
 <br>
 <a href="http://www.independent.co.uk/news/uk/home-news/rogue-landlords-12-billion-25-rentals-property-public-money-housing-benefit-lease-flats-houses-a7926421.html?amp">Rogue private landlords given £2.5bn a year of public money, new analysis reveals</a> <a href="http://web.archive.org/web/20170903121144/http://www.independent.co.uk/news/uk/home-news/rogue-landlords-12-billion-25-rentals-property-public-money-housing-benefit-lease-flats-houses-a7926421.html?amp">(archive)</a>
 <br>
+<a href="http://m.huffpost.com/uk/entry/uk_59c0180ae4b0c4c31f81da06/amp">'Absurdly' Low Spending On Social Homes Must End, Top Housing Body Tells Tories</a> <a href="http://archive.is/J6oS7">(archive)</a> 
+<br>
 
 <br>
 HOMELESSNESS
