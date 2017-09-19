@@ -1592,6 +1592,8 @@ AMBER RUDD
 <br>
 <a href="https://amp.theguardian.com/uk-news/2017/aug/23/judge-amber-rudd-orders-torture-victim-asylum-seeker-detention">Judge condemns Amber Rudd for ignoring orders to release torture victim</a> <a href="http://archive.is/0p06w">(archive)</a>
 <br>
+<a href="https://www.theguardian.com/commentisfree/2017/sep/19/home-secretary-courts-amber-rudd-deport-samim-bigzad?CMP=share_btn_tw">If Amber Rudd can’t explain why she defied the courts, she should go</a> <a href="http://archive.is/K8dq0">(archive)</a>
+<br>
 
 <br>
 DAMIEN GREEN
