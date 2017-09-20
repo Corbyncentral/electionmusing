@@ -1459,6 +1459,8 @@ HOUSE OF LORDS
 <br>
 <a href="http://www.thesouthernreporter.co.uk/news/borders-lib-dem-peers-claimed-100-000-allowances-last-year-1-4522002">Borders Lib Dem peers claimed £100,000 allowances last year</a> <a href="http://archive.is/fXk55">(archive)</a>
 <br>
+<a href="http://www.mirror.co.uk/news/politics/new-expenses-scandal-115-lords-11209593">New expenses scandal as 115 Lords who didn't take part in any debates for a year claim £1.2million of taxpayers’ cash</a> <a href="http://web.archive.org/web/20170920220912/http://www.mirror.co.uk/news/politics/new-expenses-scandal-115-lords-11209593">(archive)</a>
+<br>
 
 <br>
 YVETTE COOPER
