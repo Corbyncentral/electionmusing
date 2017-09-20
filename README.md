@@ -28,7 +28,7 @@ PRIVACY AND ACTIVISM
 <br>
 <a href="https://www.thecanary.co/2017/09/10/expansion-of-this-state-programme-could-be-the-biggest-threat-to-our-democracy-yet-opinion/">Expansion of this UK government programme could be the biggest threat to our democracy yet</a> <a href="http://web.archive.org/web/20170910170441/https://www.thecanary.co/2017/09/10/expansion-of-this-state-programme-could-be-the-biggest-threat-to-our-democracy-yet-opinion/">(archive)</a>
 <br>
-<a href=“http://uk.businessinsider.com/whatsapp-refused-encryption-backdoor-uk-government-report-2017-9”>WhatsApp reportedly refused to build an encryption backdoor for the UK government</a> <a href=“http://archive.is/QRrDk”>(archive)</a>
+<a href="http://uk.businessinsider.com/whatsapp-refused-encryption-backdoor-uk-government-report-2017-9">WhatsApp reportedly refused to build an encryption backdoor for the UK government</a> <a href="http://archive.is/QRrDk">(archive)</a>
 <br>
 
 <br>
