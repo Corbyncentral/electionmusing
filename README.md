@@ -733,6 +733,8 @@ HOUSING
 <br>
 <a href="http://m.huffpost.com/uk/entry/uk_59c0180ae4b0c4c31f81da06/amp">'Absurdly' Low Spending On Social Homes Must End, Top Housing Body Tells Tories</a> <a href="http://archive.is/J6oS7">(archive)</a> 
 <br>
+<a href="http://evolvepolitics.com/new-report-shows-exactly-why-many-millennials-will-never-get-on-housing-ladder-under-a-tory-government/">New report shows exactly why many millennials will NEVER get on housing ladder under a Tory government</a> <a href="http://archive.is/KdPnc">(archive)</a>
+<br>
 
 <br>
 HOMELESSNESS
