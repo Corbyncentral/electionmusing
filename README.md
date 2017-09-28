@@ -165,6 +165,8 @@ BBC
 <br>
 <a href="https://www.thecanary.co/2016/07/29/damning-evidence-just-came-light-exposes-bbcs-role-labour-coup/">Damning evidence just came to light that exposes the BBC’s role in the Labour coup</a> <a href="http://web.archive.org/web/20170913233724/https://www.thecanary.co/2016/07/29/damning-evidence-just-came-light-exposes-bbcs-role-labour-coup/">(archive)</a>
 <br>
+<a href="https://skwawkbox.org/2017/09/28/hey-nick-bbc-damns-own-bias-in-3-simple-tables/">HEY NICK – BBC DAMNS OWN BIAS IN 3 SIMPLE TABLES</a> <a href="http://archive.is/QvTuc">(archive)</a>
+<br>
 
 <br>
 JEREMY CORBYN
