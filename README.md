@@ -1543,6 +1543,8 @@ BORIS JOHNSON
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/brexit-boris-johnson-350-million-nhs-eu-latest-nationalist-liar-newspapers-a7952786.html?amp">Brexit: Boris Johnson labelled a ‘nationalist liar’ by European newspapers after reviving £350m claim</a> <a href="http://web.archive.org/web/20170918150943/http://www.independent.co.uk/news/uk/politics/brexit-boris-johnson-350-million-nhs-eu-latest-nationalist-liar-newspapers-a7952786.html?amp">(archive)</a>
 <br>
+<a href="http://www.independent.co.uk/news/world/asia/boris-johnson-poem-burma-rudyard-kipling-mandalay-a7975246.html">'Stunning' gaffe: Appalled ambassador stops Boris Johnson reciting colonial poem in Burma's holiest site</a> <a href="http://web.archive.org/web/20170930125524/http://www.independent.co.uk/news/world/asia/boris-johnson-poem-burma-rudyard-kipling-mandalay-a7975246.html">(archive)</a>
+<br>
 
 <br>
 ANDREA LEADSOM
