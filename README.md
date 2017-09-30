@@ -569,6 +569,8 @@ POLICE
 <br>
 <a href="https://amp.theguardian.com/uk-news/2017/aug/01/call-for-action-to-tackle-birminghams-knife-epidemic">Call for action to tackle Birmingham knife crime 'epidemic'</a> <a href="https://archive.is/Ks9Pz">(archive)</a>
 <br>
+<a href="http://evolvepolitics.com/tories-to-give-private-firms-like-g4s-and-serco-powers-to-arrest-people-in-shocking-290m-privatisation-deal/">Tories to give private firms like G4S and Serco POWERS TO ARREST people in shocking £290m privatisation deal</a> <a href="http://archive.is/C4DBN">(archive)</a>
+<br>
 
 <br>
 PRISONS
