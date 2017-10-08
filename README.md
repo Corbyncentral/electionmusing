@@ -110,6 +110,8 @@ NEGATIVE TACTICS
 <br>
 <a href="https://www.vanityfair.com/news/2017/09/theresa-may-takes-her-darkest-most-desperate-turn-yet/amp">Theresa May Takes Her Darkest, Most Desperate Turn Yet</a> <a href="http://archive.is/Z3j8f">(archive)</a>
 <br>
+<a href="https://www.buzzfeed.com/solomonhughes/a-think-tank-is-charging-thousands-to-organise-behind">A Think Tank Is Charging Thousands To Organise “Behind Closed Doors” Meetings Between Ministers And Private Companies</a> <a href="http://archive.is/uDift">(archive)</a>
+<br>
 
 
 <br>
