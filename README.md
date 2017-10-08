@@ -306,6 +306,8 @@ WAR
 <br>
 <a href="https://amp.theguardian.com/world/2017/sep/09/arms-sales-repressive-regimes-saudi-arabia">British arms sales to repressive regimes soar to £5bn since election</a> <a href="http://web.archive.org/web/20170910130232/https://amp.theguardian.com/world/2017/sep/09/arms-sales-repressive-regimes-saudi-arabia">(archive)</a>
 <br>
+<a href="https://www.theguardian.com/world/2017/oct/08/uk-trade-department-draws-half-its-secondees-from-arms-industry">UK trade department draws half its secondees from arms industry</a> <a href="http://archive.is/GgODP">(archive)</a>
+<br>
 
 
 <br>
