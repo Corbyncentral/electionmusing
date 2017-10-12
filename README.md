@@ -541,6 +541,8 @@ AUSTERITY/WELFARE
 <br>
 <a href="https://evolvepolitics.com/tetraplegic-woman-has-benefits-stopped-and-is-told-to-start-looking-for-work/">Brain-damaged tetraplegic woman has benefits stopped and told to ‘start looking for work’ by DWP</a> <a href="http://archive.is/JMwdU">(archive)</a>
 <br>
+<a href="https://www.theguardian.com/society/2017/oct/11/austerity-policy-blamed-record-numbers-children-taken-into-care">Austerity policy blamed for record numbers of children taken into care</a> <a href="http://archive.is/tg8e6">(archive)</a>
+<br>
 
 <br>
 PRIVATISATION RUSE
