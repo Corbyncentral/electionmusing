@@ -1641,6 +1641,7 @@ MICHAEL GOVE
 <br>
 <a href="http://www.telegraph.co.uk/news/politics/9120506/Michael-Gove-aides-destroyed-government-emails.html">Michael Gove aides 'destroyed government emails'</a> <a href="https://archive.is/i3QI6">(archive)</a>
 <br>
+<a href="http://evolvepolitics.com/calls-michael-gove-sacked-making-harvey-weinstein-rape-joke-live-bbc/">LISTEN: Calls for Michael Gove to be sacked after making Harvey Weinstein rape joke live on the BBC [AUDIO]</a> <a href="http://archive.is/CJmWC">(archive)</a>
 
 <br>
 DAVID DAVIS
