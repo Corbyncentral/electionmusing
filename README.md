@@ -1553,6 +1553,8 @@ BORIS JOHNSON
 <br>
 <a href="http://www.independent.co.uk/news/world/asia/boris-johnson-poem-burma-rudyard-kipling-mandalay-a7975246.html">'Stunning' gaffe: Appalled ambassador stops Boris Johnson reciting colonial poem in Burma's holiest site</a> <a href="http://web.archive.org/web/20170930125524/http://www.independent.co.uk/news/world/asia/boris-johnson-poem-burma-rudyard-kipling-mandalay-a7975246.html">(archive)</a>
 <br>
+<a href="http://www.huffingtonpost.co.uk/entry/boris-johnson-slammed-as-not-a-serious-foreign-secretary-lord-ricketts-warns-after-iran-blunder_uk_5a0446c1e4b0937b510fe6f6">Boris Johnson Is 'Not A Serious Foreign Secretary' Declares Former Foreign Office Chief</a> <a href="http://web.archive.org/web/20171109213019/http://www.huffingtonpost.co.uk/entry/boris-johnson-slammed-as-not-a-serious-foreign-secretary-lord-ricketts-warns-after-iran-blunder_uk_5a0446c1e4b0937b510fe6f6">(archive)</a>
+<br>
 
 <br>
 ANDREA LEADSOM
@@ -1642,6 +1644,7 @@ MICHAEL GOVE
 <a href="http://www.telegraph.co.uk/news/politics/9120506/Michael-Gove-aides-destroyed-government-emails.html">Michael Gove aides 'destroyed government emails'</a> <a href="https://archive.is/i3QI6">(archive)</a>
 <br>
 <a href="http://evolvepolitics.com/calls-michael-gove-sacked-making-harvey-weinstein-rape-joke-live-bbc/">LISTEN: Calls for Michael Gove to be sacked after making Harvey Weinstein rape joke live on the BBC [AUDIO]</a> <a href="http://archive.is/CJmWC">(archive)</a>
+<br>
 
 <br>
 DAVID DAVIS
