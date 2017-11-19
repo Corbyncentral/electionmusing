@@ -1758,6 +1758,8 @@ JACOB REES-MOGG
 <br>
 <a href="https://amp.theguardian.com/commentisfree/2017/aug/14/jacob-rees-mogg-contempt-tory-leadership-pitch">Jacob Rees-Mogg’s pose is fake. The contempt is real</a> <a href="https://archive.is/vm7xB">(archive)</a>
 <br>
+<a href="http://www.mirror.co.uk/news/politics/tory-jacob-rees-mogg-pocketed-11495612">Tory Jacob Rees-Mogg pocketed $680,000 payment while working for offshore firm</a> <a href="http://web.archive.org/web/20171119122838/http://www.mirror.co.uk/news/politics/tory-jacob-rees-mogg-pocketed-11495612">(archive)</a>
+<br>
 
 <br>
 TONY BLAIR/BLAIRITES
