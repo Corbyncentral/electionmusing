@@ -1576,6 +1576,8 @@ PHILIP HAMMOND
 <br>
 <a href="http://m.huffpost.com/uk/entry/uk_59b15e62e4b0dfaafcf5fdc5/amp">Labour Accuse Philip Hammond Of 'Boasting' About His Wealth To Tory MPs</a> <a href="http://archive.is/oSa3s">(archive)</a>
 <br>
+<a href="http://www.mirror.co.uk/news/politics/tory-chancellor-philip-hammond-claims-11547757">Tory Chancellor Philip Hammond claims 'there are NO unemployed people' in car-crash live TV gaffe</a> <a href="http://archive.is/nSPUR">(archive)</a>
+<br>
 
 <br>
 LIAM FOX
