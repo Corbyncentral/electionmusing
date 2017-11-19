@@ -169,6 +169,8 @@ BBC
 <br>
 <a href="https://skwawkbox.org/2017/09/28/hey-nick-bbc-damns-own-bias-in-3-simple-tables/">HEY NICK – BBC DAMNS OWN BIAS IN 3 SIMPLE TABLES</a> <a href="http://archive.is/QvTuc">(archive)</a>
 <br>
+<a href="https://tompride.wordpress.com/2017/11/19/bbc-use-independent-organisation-funded-by-daily-mail-and-uk-government-as-fact-checkers/">BBC use ‘independent’ organisation funded by Daily Mail and UK government as fact checkers</a> <a href="http://archive.is/TcQKg">(archive)</a>
+<br>
 
 <br>
 JEREMY CORBYN
