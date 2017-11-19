@@ -745,6 +745,8 @@ HOUSING
 <br>
 <a href="http://evolvepolitics.com/new-report-shows-exactly-why-many-millennials-will-never-get-on-housing-ladder-under-a-tory-government/">New report shows exactly why many millennials will NEVER get on housing ladder under a Tory government</a> <a href="http://archive.is/KdPnc">(archive)</a>
 <br>
+<a href="https://www.thecanary.co/uk/2016/11/18/tory-mp-just-said-hed-rather-golf-courses-affordable-housing-video/">This Tory MP just said he’d rather have golf courses than affordable housing</a> <a href="http://web.archive.org/web/20171119183526/https://www.thecanary.co/uk/2016/11/18/tory-mp-just-said-hed-rather-golf-courses-affordable-housing-video/">(archive)</a>
+<br>
 
 <br>
 HOMELESSNESS
