@@ -171,6 +171,9 @@ BBC
 <br>
 <a href="https://tompride.wordpress.com/2017/11/19/bbc-use-independent-organisation-funded-by-daily-mail-and-uk-government-as-fact-checkers/">BBC use ‘independent’ organisation funded by Daily Mail and UK government as fact checkers</a> <a href="http://archive.is/TcQKg">(archive)</a>
 <br>
+<a href="https://www.thecanary.co/uk/2017/11/23/question-time-just-linked-paradise-papers-maybe-panel-will-debate-tonight-images/">Question Time has just been linked to the Paradise Papers. Maybe the panel will debate that tonight.</a> <a href="http://web.archive.org/web/20171123214609/https://www.thecanary.co/uk/2017/11/23/question-time-just-linked-paradise-papers-maybe-panel-will-debate-tonight-images/">(archive)</a>
+<br>
+
 
 <br>
 JEREMY CORBYN
