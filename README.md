@@ -1534,6 +1534,8 @@ JEREMY HUNT
 <br>
 <a href="http://evolvepolitics.com/jeremy-hunt-literally-just-said-stephen-hawking-wrong-scientific-basis-nhs-reform/">Jeremy Hunt literally just said Stephen Hawking was “wrong” on scientific basis for NHS reform</a> <a href="https://archive.is/RvI3d">(archive)</a>
 <br>
+<a href="http://www.bristolpost.co.uk/news/bristol-news/hospital-bosses-delete-facebook-post-831089">Hospital bosses delete Facebook post about Jeremy Hunt visit after staff brand him 'an idiot'</a> <a href="http://archive.is/RDRW4">(archive)</a>
+<br>
 
 <br>
 BORIS JOHNSON
