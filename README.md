@@ -457,6 +457,8 @@ THERESA MAY
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/theresa-may-brexit-power-grab-plan-election-lost-majority-parliament-rig-a7937081.html">Theresa May secretly hatched plan to ‘rig’ parliament straight after losing majority in election</a> <a href="http://web.archive.org/web/20170909131857/http://www.independent.co.uk/news/uk/politics/theresa-may-brexit-power-grab-plan-election-lost-majority-parliament-rig-a7937081.html">(archive)</a>
 <br>
+<a href="http://www.independent.co.uk/news/uk/home-news/theresa-may-banned-pubs-protest-maidenhead-mp-police-funding-a8076506.html">Landlords in Theresa May's constituency threaten to ban her from every pub</a> <a href="http://web.archive.org/web/20171126183201/http://www.independent.co.uk/news/uk/home-news/theresa-may-banned-pubs-protest-maidenhead-mp-police-funding-a8076506.html">(archive)</a>
+<br>
 
 
 <br>
