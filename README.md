@@ -173,6 +173,8 @@ BBC
 <br>
 <a href="https://www.thecanary.co/uk/2017/11/23/question-time-just-linked-paradise-papers-maybe-panel-will-debate-tonight-images/">Question Time has just been linked to the Paradise Papers. Maybe the panel will debate that tonight.</a> <a href="http://web.archive.org/web/20171123214609/https://www.thecanary.co/uk/2017/11/23/question-time-just-linked-paradise-papers-maybe-panel-will-debate-tonight-images/">(archive)</a>
 <br>
+<a href="https://www.thecanary.co/uk/2017/11/29/bbc-forced-admit-andrew-neil-used-fake-tory-statistics-general-election-video/">The BBC has been forced to admit Andrew Neil used fake Tory statistics during the general election</a> <a href="http://web.archive.org/web/20171129204149/https://www.thecanary.co/uk/2017/11/29/bbc-forced-admit-andrew-neil-used-fake-tory-statistics-general-election-video/">(archive)</a>
+<br>
 
 
 <br>
