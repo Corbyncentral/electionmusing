@@ -16,6 +16,12 @@ RUSSIA
 
 
 <br>
+WASPI
+<br>
+<a href="https://evolvepolitics.com/tory-mp-says-earning-3-50-hour-great-opportunity-women-65/">Tory MP says earning £3.50 an hour is a ‘great opportunity’ for women over 65</a> <a href="http://web.archive.org/web/20171203111614/https://evolvepolitics.com/tory-mp-says-earning-3-50-hour-great-opportunity-women-65/">(archive)</a>
+<br>
+
+<br>
 PRIVACY AND ACTIVISM
 <br>
 <a href="https://www.thecanary.co/2017/08/04/tory-governments-latest-record-breaking-feat-reveals-horrific-path-uk-now-taking/">The Tory government’s latest record-breaking feat reveals the horrific path the UK is now taking</a> <a href="https://web.archive.org/web/20170804174529/https://www.thecanary.co/2017/08/04/tory-governments-latest-record-breaking-feat-reveals-horrific-path-uk-now-taking/">(archive)</a>
