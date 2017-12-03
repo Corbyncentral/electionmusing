@@ -463,6 +463,8 @@ THERESA MAY
 <br>
 <a href="http://www.mirror.co.uk/news/politics/firm-theresa-mays-husband-works-11591600">Firm where Theresa May's husband works paid no UK corporation tax in eight years - despite turning over nearly £500 million</a> <a href="http://web.archive.org/web/20171126225130/http://www.mirror.co.uk/news/politics/firm-theresa-mays-husband-works-11591600">(archive)</a>
 <br>
+<a href="http://www.itv.com/news/2017-12-02/social-mobility-tsar-quits-in-protest-at-theresa-mays-failure-to-build-a-fairer-britain/">Social mobility tsar quits in protest at Theresa May's lack of plan to tackle 'searing divides'</a> <a href="http://archive.is/37les">(archive)</a>
+<br>
 
 <br>
 AUSTERITY/WELFARE
