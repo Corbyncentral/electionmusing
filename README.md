@@ -1378,6 +1378,9 @@ BREXIT
 <br>
 <a href="http://www.huffingtonpost.co.uk/entry/michael-gove-accused-of-suppressing-secret-report-into-brexit-food-price-rises_uk_59c4cd9ce4b06ddf45f6eaa9">Michael Gove Accused Of Suppressing Report Into Whether Brexit Will Cause Food Prices To Rise</a> <a href="http://archive.is/0B8i6">(archive)</a>
 <br>
+<a href="http://blogs.ec.europa.eu/ECintheUK/euromyths-a-z-index/">
+Euromyths A-Z index</a> <a href="http://archive.is/Ump6H">(archive)</a>
+<br>
 
 <br>
 PANAMA PAPERS AND TAXATION
