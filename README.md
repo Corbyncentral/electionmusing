@@ -118,6 +118,8 @@ NEGATIVE TACTICS
 <br>
 <a href="https://www.buzzfeed.com/solomonhughes/a-think-tank-is-charging-thousands-to-organise-behind">A Think Tank Is Charging Thousands To Organise “Behind Closed Doors” Meetings Between Ministers And Private Companies</a> <a href="http://archive.is/uDift">(archive)</a>
 <br>
+<a href="http://voxpoliticalonline.com/2017/12/30/conservative-corruption-theresa-may-tries-to-cement-herself-in-as-leader-by-bribing-mps/">Conservative corruption: Theresa May tries to cement herself in as leader by BRIBING MPs</a> <a href="http://archive.is/oz2zc">(archive)</a>
+<br>
 
 
 <br>
