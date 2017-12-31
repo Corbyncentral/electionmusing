@@ -1198,6 +1198,8 @@ CORRUPTION ALLEGATIONS
 <br>
 NHS
 <br>
+<a href="https://www.scribd.com/document/368159640/100-Ways-the-Conservative-Party-Have-Failed-Our-NHS-2010-17">100 ways the conservatives have failed the NHS</a> 
+<br>
 <a href="http://www.independent.co.uk/news/uk/politics/jeremy-hunt-nhs-funding-cuts-england-wales-scotland-budgets-latest-a7389696.html?amp">Jeremy Hunt admits his £10bn for the NHS involves other cuts to UK health budgets</a> <a href="https://web.archive.org/web/20170731170033/http://www.independent.co.uk/news/uk/politics/jeremy-hunt-nhs-funding-cuts-england-wales-scotland-budgets-latest-a7389696.html?amp">(archive)</a>
 <br>
 <a href="http://www.independent.co.uk/news/uk/politics/nhs-privatisation-charges-professionals-in-house-agency-a7426966.html?amp">Government quietly privatises the NHS's in-house agency staff provider</a> <a href="https://web.archive.org/web/20170629002741/http://www.independent.co.uk/news/uk/politics/nhs-privatisation-charges-professionals-in-house-agency-a7426966.html?amp">(archive)</a>
