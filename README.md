@@ -1389,6 +1389,8 @@ Euromyths A-Z index</a> <a href="http://archive.is/Ump6H">(archive)</a>
 <br>
 <a href="http://www.huffingtonpost.co.uk/entry/fox-nodeal-ministers_uk_5a3bc79ae4b06d1621b2589c">Ministers Cannot Name A Single Country That Asked UK For A Post-Brexit Trade Deal</a> <a href="https://web.archive.org/web/20180101191019/http://www.huffingtonpost.co.uk/entry/fox-nodeal-ministers_uk_5a3bc79ae4b06d1621b2589c">(archive)</a>
 <br>
+<a href="https://www.theguardian.com/politics/2018/jan/06/brexit-will-divert-70m-from-our-cancer-drug-making-capacity-glaxosmithkline">Brexit to swallow £70m meant for developing cancer drugs, says GSK</a> <a href="http://web.archive.org/web/20180106215342/https://www.theguardian.com/politics/2018/jan/06/brexit-will-divert-70m-from-our-cancer-drug-making-capacity-glaxosmithkline">(archive)</a>
+<br>
 
 <br>
 PANAMA PAPERS AND TAXATION
