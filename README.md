@@ -1590,7 +1590,7 @@ BORIS JOHNSON
 <br>
 <a href="http://www.huffingtonpost.co.uk/entry/boris-johnson-slammed-as-not-a-serious-foreign-secretary-lord-ricketts-warns-after-iran-blunder_uk_5a0446c1e4b0937b510fe6f6">Boris Johnson Is 'Not A Serious Foreign Secretary' Declares Former Foreign Office Chief</a> <a href="http://web.archive.org/web/20171109213019/http://www.huffingtonpost.co.uk/entry/boris-johnson-slammed-as-not-a-serious-foreign-secretary-lord-ricketts-warns-after-iran-blunder_uk_5a0446c1e4b0937b510fe6f6">(archive)</a>
 <br>
-<a href=h"ttp://uk.businessinsider.com/boris-johnson-women-gay-people-sexism-bumboys-totty-toby-young-2018-1">Boris Johnson's articles about 'hot totty' and 'tank-topped bumboys' unearthed</a> <a href="http://archive.is/oyorf">(archive)</a>
+<a href="http://uk.businessinsider.com/boris-johnson-women-gay-people-sexism-bumboys-totty-toby-young-2018-1">Boris Johnson's articles about 'hot totty' and 'tank-topped bumboys' unearthed</a> <a href="http://archive.is/oyorf">(archive)</a>
 <br>
 
 <br>
